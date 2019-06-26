@@ -1,15 +1,15 @@
 # Junho Park's Worship Set List
-This is a list of my own worship sets that I've been keeping track of over the years. I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here.
+This is a list of my own worship sets that I've been keeping track of over the years. This list is broken down by dates on which I led worship (most of them will be for Sunday morning services but not all). A few of the items on the list are for when I've led rehearsals with my team.
+
+I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2019-06-16 (ICC - Missionary Richard Joe)
-John 4 - the story of Jesus and the Samaritan woman at the well, talking about spiritual thirst.
-We all have a spiritual thirst that we are trying to satisfy with different kinds of false “waters".  Jesus is the only true Living Water who satisfies
-
 * How Great is Our God (A)
 * Ephesians chpt 2 v8 tells us that it is by God's grace that we have been saved and that it's a gift of God and NOT something that we have earned. Let's give thanks to God for his faithful love for us as we sing this next song
 * Unashamed (A)
 * Revelation Song (D) => TL lead
-* Sermon
+* Sermon: John 4 - the story of Jesus and the Samaritan woman at the well, talking about spiritual thirst.
+We all have a spiritual thirst that we are trying to satisfy with different kinds of false “waters".  Jesus is the only true Living Water who satisfies
 * Hungry (D) => TL lead
 * Build My Life (G)
 * Prayer song: Lord I Need You (A)
@@ -45,13 +45,11 @@ We all have a spiritual thirst that we are trying to satisfy with different kind
 * One Day (When We All Get to Heaven) (C) - Guitar-driven
 
 ## 2019-04-28 (ICC - Pastor Joshua Kim - Communion Sunday)
-Igniting God's passion - Luke 12:49-51
-
 * Read Psalm 105:2-4
 * How Great is Our God (A)
 * Is He Worthy (C) => Go easy on the keyboard
 * Son of God (G)
-* Sermon
+* Sermon: Igniting God's passion - Luke 12:49-51
 * Hosanna (E) => TL lead
 * Communion song: Nothing but the blood (hymn) (E)
 * Better is One Day (E)
@@ -59,13 +57,11 @@ Igniting God's passion - Luke 12:49-51
 * [Spotify playlist](https://open.spotify.com/user/jbox222/playlist/7qlgqHTWeE1SjYjbUbwxq0?si=7_u2uCFUSGaDvRKMypx1vg)
 
 ## 2019-04-14 (ICC - Dr. Steve - Acoustic worship w/o drums & bass)
-Theology of work related sermon. Look at the way that we will continue to work for God's glory in heaven and how that ought to motivate our service for God in the present.
-
 * "Good morning everyone - We are glad to have you join us for worship this morning. At this time why don’t we all stand and spend some time blessing the Lord our God by singing Him songs of praise? In Psalm 103:1-5 it says // "Bless the Lord, O my soul, and all that is within me, bless his holy name! Bless the Lord, O my soul, and forget not all his benefits, who forgives all your iniquity, who heals all your diseases, who redeems your life from the pit, who crowns you with steadfast love and mercy, who satisfies you with good so that your youth is renewed like the eagle's." // And btw our band this morning is without drums and bass which IMO is ripe for playing older worship songs - so most of the songs we’ll be singing will be roughly 20 or so years old. Hope you’re okay with that :smile:"
 * 10,000 Reasons (E)
 * You are Holy (E)
 * All in All (E)
-* Sermon
+* Sermon: Theology of work related sermon. Look at the way that we will continue to work for God's glory in heaven and how that ought to motivate our service for God in the present.
 * Share extra about how the next song ties to the sermon
 * Let Your Glory Fall (G)
 * O Lord My Heart Longs to Be (G)
@@ -73,14 +69,12 @@ Theology of work related sermon. Look at the way that we will continue to work f
 * [Spotify playlist link](https://open.spotify.com/user/jbox222/playlist/5Y9ZcbxWBAEDOyPWL4itBK?si=RN82HizOQN-PvMqdCr9e5w)
 
 ## 2019-04-07 (ICC - Dr. Steve)
-"The Intermediate State" between our death and the final state of eternity when the New Heaven and New Earth will appear. The focus will be on God perfecting us and making us to be Christlike so that we can rule with him - the work that he began in us in this life on earth continuing into the life after our death. Songs that could work: God healing us, restoring us, or simply songs of his greatest and love toward us. Hymn “Amazing Grace” would actually fit pretty well as a closing song for this message. => Message update: God's presence on earth
-
 * Read Psalm 100:1-5
 * May the Peoples Praise You (C)
 * W/ Easter just a couple of weeks away I wanted to read a book in the Bible that focuses on Jesus - so I’ve been reading thru the book of Mark in recent days. And as I’ve been reading thru it I’ve been struck by how Jesus was so intimately integrated into the lives of all diff kinds of people. Like, when he chose to heal people he often touched them—and many of these were people who were outcasts who rarely got physical affection from others. He had meals with tax collectors who were seen as very corrupt, greedy, and immoral by many, he showed much grace to prostitutes and I could go on and on. // As we sing this next song that focuses in Jesus may there be facets of Jesus that speak to your hearts and remind you of just how worthy of our praise is Jesus is.
 * Jesus (G)
 * Build My Life (G)
-* Sermon
+* Sermon: "The Intermediate State" between our death and the final state of eternity when the New Heaven and New Earth will appear. The focus will be on God perfecting us and making us to be Christlike so that we can rule with him - the work that he began in us in this life on earth continuing into the life after our death. Songs that could work: God healing us, restoring us, or simply songs of his greatest and love toward us. Hymn “Amazing Grace” would actually fit pretty well as a closing song for this message. => Message update: God's presence on earth
 * I Stand Amazed (E)
 * Worthy, Worthy (G)
 * Prayer song: Soon (D)
@@ -116,14 +110,12 @@ Theology of work related sermon. Look at the way that we will continue to work f
 * Prayer time: Read Psalm 3. We don’t do enough sharing of how God has delivered us in our times of need - so thought it would be great if we can spend some time sharing and encouraging each other.
 
 ## 2019-02-24 (ICC - Dr. Steve - Communion Sunday - No electric guitar)
-Part 2 message on 2 Samuel 11-12. Focus on God not necessarily focused on us living a moral life but more about our relationship w/ God. Our repentance reflects we are under God's leadership & what we desire more than anything is intimacy w/ Him. Songs that focus on intimacy with God, relationship with him, etc. will work well.
-
 * Note: DADGAD tuning
 * Man of Sorrows (D) => Acoustic guitar start
 * As we sing this next song and continue in our worship to God, may we remember that being a Christian is SO much more than living a moral life, going to church, reading the Bible, etc. While these things I’ve just mentioned are all good things, what God has made clear in the Bible is that He wants to be in a relationship with us. May we be a church that consistently longs for more of God’s presence in our lives and hungers for closeness with God.
 * Holy Spirit (D) => Acoustic guitar start
 * Praise the Father Praise the Son (D) => Acoustic guitar start
-* Sermon
+* Sermon: Part 2 message on 2 Samuel 11-12. Focus on God not necessarily focused on us living a moral life but more about our relationship w/ God. Our repentance reflects we are under God's leadership & what we desire more than anything is intimacy w/ Him. Songs that focus on intimacy with God, relationship with him, etc. will work well.
 * Come Thou Fount (E)
 * Communion song: Mighty is the Power of the Cross (F) => Acoustic guitar-driven
 * Psalm 23 (Surely Goodness, Surely Mercy) (A)
@@ -134,29 +126,25 @@ Part 2 message on 2 Samuel 11-12. Focus on God not necessarily focused on us liv
 * Refiner’s Fire (E)
 
 ## 2019-02-10 (ICC - Dr. Steve)
-Part 1 message on 2 Samuel 11-12. Focus on God not necessarily focused on us living a moral life but more about our relationship w/ God. Our repentance reflects we are under God's leadership & what we desire more than anything is intimacy w/ Him. Songs that focus on intimacy with God, relationship with him, etc. will work well.
-
 * Good morning, everyone. Before we enter into a time of singing together, I wanted to share one thing - which is that some of you in this room might not particularly enjoy singing and may not feel comfortable singing in a more public setting like this. But I wanted to remind you all that this corporate singing that we do on Sunday mornings is not at all about how well we sing from a musical standpoint but rather, it’s all about declaring truths about who God is, what He has done in our lives, and who we are in God’s eyes and declaring these truths to God, to each other—which is often really powerful and encouraging, and declaring them to ourselves because all of us are forgetful people and we are prone to wandering away from God. // And now that I’ve shared all of that, I want to invite you to stand with us as long as you are comfortable with standing up and sing with us as we sing about Jesus our Savior - the name above all names, blessed redeemer.
 * Jesus Messiah (G)
 * May the Peoples Praise You (C)
 * Share following while keyboard playing intro of next song:  In the book of John chapter 3, verses 16 & 17 it says that "God so loved the world that he gave his one and only Son [Jesus], that whoever believes in him shall not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him."
 As we sing the next song, may we be moved by God's kindness & goodness in giving us Jesus, and being put to death on the cross for our sins, so that we could be in a loving relationship with Him.
 * Living Hope (C)
-* Sermon
+* Sermon: Part 1 message on 2 Samuel 11-12. Focus on God not necessarily focused on us living a moral life but more about our relationship w/ God. Our repentance reflects we are under God's leadership & what we desire more than anything is intimacy w/ Him. Songs that focus on intimacy with God, relationship with him, etc. will work well.
 * Build My Life (G)
 * Who You Are (G) => Skipped due to lack of time
 * Prayer song: Soon (D) => Skipped due to lack of time
 
 
 ## 2019-02-03 (ICC - Dr. Steve - Communion Sunday)
-2 Samuel 11-12 - David’s sin with Bathsheba. Focused on the struggle for us to own up to our own sin, and yet how God’s spirit brings us to that place of confession and the forgiveness we find from God when we repent of our sins
-
 * Good morning, everyone! We’re glad that you’re able to join us for worship this morning & I’m thankful that the weather has really warmed up in the last day. // Why don’t we start our service this morning by singing the following song that speaks to God’s goodness and his faithful love for us. If you’re comfortable with standing up, we want to invite you to stand with us and sing the following songs of worship with us
 * Good Good Father (G)
 * Next song we’re going to sing is an upbeat worship song that I wanted to introduce to all of you. And being that it’s a song that comes from Psalm 67, I thought it’d be appropriate for us to do a congregational reading of Psalm 67. So, as I read this passage I’m gonna ask that you read it out loud with me // May God be gracious to us and bless us and make his face shine on us so that your ways may be known on earth, your salvation among all nations. // May the peoples praise you, God; may all the peoples praise you. // May the nations be glad and sing for joy, for you rule the peoples with equity, and guide the nations of the earth. // May the peoples praise you, God; may all the peoples praise you. // The land yields its harvest; God, our God, blesses us. // May God bless us still, so that all the ends of the earth will fear him.
 * May the Peoples Praise You (C)
 * Great Are You Lord (G)
-* Sermon
+* Sermon: 2 Samuel 11-12 - David’s sin with Bathsheba. Focused on the struggle for us to own up to our own sin, and yet how God’s spirit brings us to that place of confession and the forgiveness we find from God when we repent of our sins
 * Unashamed (A)
 * Communion song: At the Cross (Love Ran Red) (A)
 * Jesus Paid It All (B)
@@ -187,13 +175,340 @@ As we sing the next song, may we be moved by God's kindness & goodness in giving
 * Made Me Glad (C)
 
 ## 2018-12-30 (ICC - Dr. Steve - Communion Sunday)
-Charge for the new year. Challenge the church to grow in love. Because God loves us, we are to love one another. Invite the church to reflect on how we are loving in our lives, and the nature of Christian love--looking after the interest of others over our own, etc.
-
 * How Great is Our God (A)
 * Psalm 23 (A)
 * O Come to the Altar (A)
-* Sermon
+* Sermon: Charge for the new year. Challenge the church to grow in love. Because God loves us, we are to love one another. Invite the church to reflect on how we are loving in our lives, and the nature of Christian love--looking after the interest of others over our own, etc.
 * All I Have is Christ (D)
 * Communion - Song: Humble King (E)
 * Hosanna (E)
 * Prayer song: God You’re So Good (A)
+
+## 2018-12-16 (ICC - Pastor Peter)
+* Welcome & prayer - Something Christmas-related
+* Start opening set w/ Acoustic Guitar.
+* Jesus (G)
+* Intro the chorus of next song to congregation BEFORE we start the song as a band.
+* Midnight Clear (Love Song) (G)
+* Psalm 148:1-6: Praise the Lord! Praise the Lord from the heavens; praise him in the heights! Praise him, all his angels; praise him, all his hosts! Praise him, sun and moon, praise him, all you shining stars! Praise him, you highest heavens, and you waters above the heavens! Let them praise the name of the Lord! For he commanded and they were created. And he established them forever and ever; he gave a decree, and it shall not pass away.[a]
+* Glory in the Highest (Christmas Version) (A or Bb) => JJ lead
+* Sermon: Focus on how in sending His Son to become a man, God demonstrated His love for us by identifying with us and how He expressed that love through empathy. Explore elements of his humanity and how that should be meaningful to us and hopefully also inspire us to love others in that same way -- meeting them where they are and not where we want them to be. Hebrews 4:14-16.
+* Lead closing set on electric guitar
+* You are My King (D) => TL lead & guitar-driven
+* At the Cross (E) => TL lead; Guitar-driven; Keys intro
+* Prayer song: Your Name (Christmas Version) (A)
+
+## 2018-12-09 (ICC - Dr. Steve)
+* Core pads start & keyboard intro start
+* Good morning, everyone! We're so glad that you're here with us this morning. We’re going to start our service this morning by singing a song that reminds us that we are most certainly NOT the only ones who are worshiping God this morning but rather, we are joining in with the rest of God’s people and his angels who worship Him throughout day and night. Let’s all stand at this time and sing this song together.
+* Worthy of it all (A) => 4 count > Piano intro
+* In the Book of Isaiah chapter 9 (Isaiah 9:6) - many years before Jesus came into our world - it is written - “For to us a child is born, to us a son is given, and the government will be on his shoulders. And he will be called WONDERFUL COUNSELOR, MIGHTY GOD, EVERLASTING FATHER, PRINCE OF PEACE.” Let’s all sing this next song that is based on this passage.
+* Gloria (A) => 4 count > full band + electric-heavy intro
+* O Holy Night (A) => Electric guitar driven (drums start)
+* Sermon: Look at second half of what’s known as “double imputation”—1) Christ receiving the punishment for our sin and then 2) giving us his righteousness as our own. Focus of the message on exploring how Jesus lived the perfect life that we couldn’t live, and then credited that perfect life on our behalf. Songs that focus on Christ as our hope, righteousness, salvation, etc. should fit well with the message.
+* How Great is the Love (G)
+    * Electric guitar start - picking
+    * TL sing lead
+* Jesus Messiah (G)
+    * Electric guitar start - strum
+    * JJ sing lead
+* Prayer song: O Come All Ye Faithful (G) => Soft & not too loud & probably skip bridge
+    * Electric guitar start - picking
+    * JJ sing lead
+
+## 2018-12-02 (ICC - Dr. Steve)
+* Start pads in A
+* Good morning, everyone! We're so glad that you're here with us this morning. In Psalm 104:33-34 it says “I will sing to the LORD all my life; I will sing praise to my God as long as I live. May my meditation be pleasing to him, as I rejoice in the LORD” Why don’t we all stand at this time and come together and rejoice in the LORD through singing.
+* O Praise the Name (A) => Capo 2 for all of opening set
+* Starting with our service this morning and leading al the way up to our Christmas on the 23rd of December, we’re going to have Christmas-focused worship services, which means that among other things, we will be regularly singing songs that focus on Jesus’s birth. // This next song celebrates Jesus’s birth and his nearness to us. Let’s all sing it together.
+* Your Name (Christmas Version) (A)
+* Mighty to Save (A)
+* Sermon: The need for God’s gift of sending his Son to die on our behalf. Explore the struggle that many people have with the fact that somehow God’s wrath needed to be satisfied because of our sin. Why couldn’t God just forgive us without punishing his Son? Unpack how God the Christmas message brings together God’s justice and his mercy.
+* This is Our God (G)
+* Jesus, Son of God (A)
+* Prayer song: Here I am to Worship (E)
+
+## 2018-11-27 (ICC - Worship team rehearsal - me on electric guitar)
+* Gloria (A)
+* Your Name (Christmas version) (A)
+* Living Hope (C)
+* Jesus Paid It All (B)
+* Here I am to Worship (E)
+* This is Our God (G)
+* Jesus, Son of God (A)
+* Devotional: Psalm 111:10-112:1. Talk about fear of God. How would you describe fear of God as it’s reflected in your own life and how should it impact the way we serve on Sunday mornings?
+
+## 2018-10-15 (ICC - Small group)
+* Open the Eyes Of My Heart (E)
+* Christ is Enough (A)
+
+## 2018-10-30 (ICC - Worship team rehearsal - me on electric guitar)
+* Holy Spirit (D)
+* Gloria (A)
+* This I Believe (G)
+* O Come All Ye Faithful (G)
+* Jesus Son of God (A)
+* Worthy, Worthy (G)
+
+## 2018-11-06 (ICC - Prayer meeting - in youth group room)
+* Share a few verses
+* Better is One Day (E)
+* How Great is Our God (A)
+* Quick sharing before next song
+* Unashamed (A)
+* Prayer
+* Made Me Glad (Capo 3 - in C)
+* Always (Capo 3 - in A#)
+
+## 2018-10-28 (ICC - Dr. Steve)
+* Good morning, everyone! Welcome to Immanuel Community Church, we're so glad that you're here this morning. In Psalm 135:1-3, it says: Praise the Lord. Praise the name of the Lord; praise him, you servants of the Lord, you who minister in the house of the Lord, in the courts of the house of our God. Praise the Lord, for the Lord is good; sing praise to his name, for that is pleasant. // Let's give God praise this morning & praise Him for His goodness & His love.
+* Good Good Father (G)
+* This is Our God (G)
+* Our God who is a refuge for the poor, a shelter from the storm, father to the orphan, healer to the broken, who brings us peace & comfort - may our desire & our longing for our amazing God grow. May we hunger & thirst for more of God in our lives.
+* Lord I Want to Know You More (G)
+* Sermon: 2 Samuel 1: David’s lament of Saul and Jonathan. Exploring the importance of lament as a part of the Christian life and the importance of learning how to grieve as an expression of our faith in God and worship to him.
+* Despite the fact that this next song has a happy tune and is comprised of mostly all major happy-sounding chords, much of the lyrics come from the book of Job where he is in deep, deep grief. Job was a righteous, God-fearing man, who was leading a really good life with good family & good health, great wealth... and then within a very short period of time, he lost his children, his servants, his great wealth, and his health. And Job grieves throughout much of the book of Job. And yet, despite his grieving, Job remembers God and in Job 19, he is able to say, "I know that my redeemer lives, and that in the end he will stand on the earth". And not long after he utters these hopeful words, he expresses a lot of pain and grief. // While I'm not sure if the Book of Job was necessarily written as a model of how to grieve properly as a Christian, I think the book does show us what it's like to grieve AND to hope in God at the same time. Hoping in God does not mean that grieving ceases, and that, I think, is really helpful for us to remember. Grieving AND hoping in God does not mean that our hoping in God is not genuine. // So as we sing this song together, let's remember that much of the lyrics of this song come from Job's deep pain & sorrow as well as his enduring trust in God.
+* My Redeemer Lives (A) => Just me, TL, PA
+* Communion song: Psalm 23 (C)
+* Invite rest of the band up
+* It is Well With My Soul (C)
+* Prayer song: I Will Wait For You (G)
+
+## 2018-10-21 (ICC - Dr. Steve)
+* Pads + Electric guitar
+* Good morning, everyone! Welcome to Immanuel Community Church, we're so glad that you're here. Before we sing our first song of worship together, I wanted to read the following passage that Pastor Steve referred to in his sermon last week Sunday & speaks so clearly to God's love & faithfulness. In Romans 8, it says - If God is for us, who can be against us? He who did not spare his own Son but gave him up for us all, how will he not also with him graciously give us all things? Who shall bring any charge against God's elect? It is God who justifies. Who is to condemn? Christ Jesus is the one who died—more than that, who was raised—who is at the right hand of God, who indeed is interceding for us. Who shall separate us from the love of Christ? Shall tribulation, or distress, or persecution, or famine, or nakedness, or danger, or sword? As it is written, “For your sake we are being killed all the day long; we are regarded as sheep to be slaughtered.” No, in all these things we are more than conquerors through him who loved us. For I am sure that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor anything else in all creation, will be able to separate us from the love of God in Christ Jesus our Lord.
+* God is Able (A)
+* I love this next song because it's a wonderful telling of the gospel in a song format. The song talks about how Jesus went to the cross for us, how he died, was buried, and rose again, and that Jesus will return and that we will be united with Him along with every other Christian throughout all of history and the kind of worship services that we're going to have when Jesus is physically present in our midst is going to be sooooo much more amazing than any worship service that you & I have ever been a part of. A couple of Sundays ago during worship, I talked about a church worship conference in Nashville that I attended recently where I got to worship God with over 7k others. That was really neat. This past weekend, I was playing the keyboard at a church planting conference where I got to worship God with 1,000 pastors and church planters. That was really cool. But I recognize that these experiences are going to be nothing compared to the worship services that we will have when we're worshiping Jesus physically in our midst AND we get to worship him alongside Billy Graham, DL Moody, our Martin Luther, John Calvin, Apostle Paul, our family members who loved Jesus while they were still alive... and I share all this because as we sing this next song, I want to encourage you to think about congregational worship as something that we're gonna be doing for ALL of eternity & the best worship is yet to come.
+* O Praise the Name (A)
+* Soon (D) => A lot of electric “pads"
+* Sermon: 1 Samuel 27-30 - David settling among the Philistines again in a town called Ziklag. A few themes - 1) The messiness of community. David’s ragtag group shows a lack of character repeatedly in the David story, and yet this is the community that was given to David (even after the wilderness years and into his kingship). 2) God’s grace through all the messiness. There is a strong temptation to focus primarily on the human events and be stumbled by how little “godliness” we see on display by so many of the players in this story. And yet maybe we’re focusing on the wrong thing, not realizing that God is accomplishing his purposes even in the midst of all this messiness. // Songs that focus more on the second theme of God’s goodness and faithfulness that is greater than our weakness and failings will probably fit the sermon the best.
+* Great is the Lord (A) => Guitar-driven
+* God You’re So Good (A)
+* OPTIONAL SONG: Good Good Father (G)
+* Prayer song: Your Mercy (E)
+
+## 2018-10-14 (ICC - Dr. Steve)
+* Good morning, everyone. Why don't we all stand and start our service by singing this song together - a song that gives thanks to Jesus for willingly going to the cross to be sacrificed on our behalf, to set us free, to save us, to make it possible for us to be right with God and to be in a loving relationship with Him.
+* Man of Sorrows (D)
+* All I Have is Christ (D)
+* Show Scripture on screen: Psalm 46:1-3
+* I've been reading through the Psalms lately and one word that's really caught my attention is the word REFUGE. God clearly was King David's refuge in times of trouble & need and that same God is also our refuge. Instead of living in fear, instead of obsessing over trying to fix our life's problems on our own, God has made it very clear in the Bible that we are to look to Him and depend on Him for protection, safety, comfort, rest, and hope. In Psalm 46:1-3 (NIV) it says: God is our refuge and strength, an ever-present help in trouble. Therefore we will not fear, though the earth give way and the mountains fall into the heart of the sea, though its waters roar and foam and the mountains quake with their surging. Let's sing the following song together
+* I Lift My Hands (A) => Start with some kinda snare shuffle to keep us all in tempo.
+* Sermon: 1 Samuel 25 - Nabal and Abigail. Continue theme from last Sunday on injustice but also develop the theme of the importance of community in growing our wisdom as well as the need to put our trust in God when things are not going the way we think they should.
+* I Will Wait for You (G)
+* How Great is the Love (G) => guitar start
+* Optional song: Cornerstone (G)
+* Prayer song: Lord I Want to Know You More (G)
+
+## 2018-10-07 (ICC - Chris)
+* Something simple on the keys - alternating between A & D
+* Good morning, everyone! I'm super happy to be here & to be able to spend this morning worshiping our God with all of you. Coming out of the sermon that Dr. Steve preached this past Sunday on King David's many trials & his wilderness experience - I thought it would be fitting to open up this morning's service by reading a few verses from Psalm 57, which is a Psalm that Dr. Steve touched on in his sermon last week. In Psalm 57, it says: Have mercy on me, my God, have mercy on me, for in you I take refuge. I will take refuge in the shadow of your wings until the disaster has passed. I cry out to God Most High, to God, who vindicates me. He sends from heaven and saves me, rebuking those who hotly pursue me; God sends forth his love and his faithfulness. I am in the midst of lions; I am forced to dwell among ravenous beasts--men whose teeth are spears and arrows, whose tongues are sharp swords. Be exalted, O God, above the heavens; let your glory be over all the earth.
+* Pads - A
+* 4 count on drums > electric guitar
+* Always (A)
+* A few weeks ago, myself and 5 others from church went to Nashville for a church worship conference called the Sing conference - and it was just an amazing time of real powerful worship along with over 7,000 people who were there, great music that was performed by top-notch musicians, great teaching, great time of fellowship - it was just such a blessing & have already signed up to attend next year. Anyhow, the next song we're about to sing is one of several songs that I was introduced to at this conference and really loved. And since much of the lyrics of the song comes from Psalm 130, I thought it would be great if we can all read a few verses from Psalm 130 TOGETHER, OUT LOUD. So why don't we read Psalm 130, verses 5 & 6: "I wait for the Lord, my whole being waits, and in his word I put my hope. I wait for the Lord more than watchmen wait for the morning, more than watchmen wait for the morning"
+* Pads - G
+* I Will Wait For You (Psalm 130) (G) => Keyboard intro
+* I Need Thee Every Hour (G) - Guitar-driven
+* Sermon: Psalm 17 - the big idea will be about David trusting in God’s justice rather than his own.
+* Pads - A
+* Read Psalm 18:2-3
+* Made Me Glad (A) - keyboard start
+* Quick note about singing the following song again
+* Pads - G
+* I Will Wait For You (Psalm 130) (G)
+* Optional song: I Lift My Hands (A)
+* Prayer song: You are Holy (E)
+
+## 2018-09-25 (ICC - Worship team rehearsal)
+
+* Read Psalm 1:1-2. Lead devotional: Share about my wonderful experience at Sing! and how I’ve been so motivated to immerse myself in the Psalms. And I love how it lines up with David sermon series.
+* The question that I want to ask all of us is “what do we delight in”? I delight in really good music - especially piano/guitar + really good singer. I delight in getting an offer letter when I interview at a company I want to work at. I delight in my children expressing their affection for me.
+* What do you all delight in? Any of you want to share?
+* Going back to these 2 verses - it talks about delighting in God’s Word. It speaks of meditating on it day and night. I’ve found that when I like enjoy something and I start to think about it throughout the day, I become sort of obsessed with it in a way. Like singing a really good song in my head. Or meditating on really good food I ate.
+* A challenge that I would like to give to all of us incl. myself is to not just regularly read the Bible but to think about God’s Word throughout our day. Most of the songs we sing as a team have scriptural references. So hopefully as you continue to serve, you’ll be able to build an increasingly larger database of Scripture-based songs to be able to sing in your head and in turn, meditate on God’s Word.
+* Pray together.
+
+Songs to rehearse:
+* Lord I Want to Know You More (G)
+* The Lord is My Salvation (A)
+* I Will Wait For You (Psalm 130) (G)
+* May the Peoples Praise You (C)
+* My Worth is Not in What I Own (D)
+* I Believe (E)
+* Any of the songs that Pastor Peter has been singing? Hymns?
+
+## 2018-09-20 (ICC - Small group)
+* Jesus Messiah (G)
+* My Worth is Not in What I Own (D)
+
+## 2018-08-26 (ICC - Dr. Steve)
+* Pads - A
+* Always (A)
+* God You’re So Good (A)
+* Change pads key while Piano intro gets going
+* Living Hope (C)
+* Sermon: Finish Essentials series with the topic of relationships. Focus will be on exploring what God’s purpose is for the relationships that we have in our lives - seeing them as opportunities to be used by him to minister to others. No central text.
+* Shine (G)
+* Communion song: Remembrance (D)
+* Pads
+* Shout to the Lord (A) - Guitar driven
+* Prayer song: Everlasting God (New Life) (G) => Skip bridge
+
+## 2018-08-12 (ICC - Pastor Peter)
+* Jesus Messiah (G)
+* Jesus (G)
+* Cornerstone (G)
+* Sermon: Isaiah 40:28-31 - “Hope in the Lord” - We lose hope in God and struggle to faithfully walk with Him because when life does not go our way we often lose sight of the fact of who He is (omniscient, omnipotent & all-loving) and that He has a plan for our good and His glory. But God calls us to place our hope in nothing else but Him to and in doing so He promises to give us His strength to persevere.
+* We are going to sing a song that is verrrry close to a song we sang earlier in this morning’s service and it’s rendition of a well-known hymn “My Hope is Built On Nothing Less” and adds a declarative bridge - “All my hope is in You and all my strength is in You”.
+* Solid Rock (E)
+* My Reward (A)
+* Prayer song: Soon (D)
+
+## 2018-08-05 (ICC - Chris)
+* In Psalm 147 (147:2-6) it says that God heals the brokenhearted and binds up their wounds. He determines the number of the stars and calls them each by name. Great is our Lord and mighty in power; his understanding has no limit. The Lord sustains the humble but casts the wicked to the ground. // At this time why don’t we all stand and sing this song together.
+* How Great is Our God (A)
+* I introduced this next song we’re about to sing at our church retreat back in June & as we sing this song, I hope that it causes all of us to think about the kindness & goodness that God has shown us by reaching down to us, transforming our hearts & enabling us to be in a relationship with Him, and calling us his sons & daughters.
+* Living Hope (C)
+* Worthy, Worthy (G)
+* Sermon: Genesis 28:10:22, Focus not on the ladder or the dream, but mostly on God's promise to Jacob and Jacob's response to it.
+* Let Your Glory Fall (G) => Ended up singing instead: Who You Are (G)
+* Made Me Glad (A)
+* Prayer song: Good Good Father (G)
+
+## 2018-06-17 (ICC - Missionary - Joe)
+* Note: DADGAD tuning
+* Awesome is the Lord Most High (G)
+* Share before next song
+* Always (A)
+* Worthy of It All (A)
+* Sermon: Jochebed was a woman who lived by faith in God’s character and promises, which enabled her to overcome intense fears. This faith also led to her living a life of sacrifice that reflected her namesake: the glory of God. In turn, God used her in others’ lives (including her son Moses, as well as all believers in Christ) to experience the glory of God. Through her life, may we all be encouraged to live lives of faith, the kind that overcomes fear, and to live sacrificially for the glory of God and in turn, to see others around us experiencing that same glory in their lives. Text = Exodus 2:1-10
+* I Lift My Hands (A)
+* Holy Spirit (D) => Start w/ pads
+* Prayer song: Listen to Our Hearts (E)
+
+## 2018-06-03 (ICC - Dr. Steve - Baptism service)
+* Good morning everyone! I want to start our service this morning by reading portions of Psalm chpt 42, which is a Psalm that’s been on my heart this past week: "As the deer pants for streams of water, so my soul pants for you, my God. 2 My soul thirsts for God, for the living God. When can I go and meet with God? My tears have been my food day and night, while people say to me all day long, “Where is your God?” 4 These things I remember as I pour out my soul: how I used to go to the house of God under the protection of the Mighty One with shouts of joy and praise among the festive throng.” // “Why, my soul, are you downcast? Why so disturbed within me? Put your hope in God, for I will yet praise him, my Savior and my God.” // Even if you feel heaviness in your heart, even if you sense that your soul is downcast, my hope and prayer for all of us this morning is that we would long to meet with God this morning… that we would yearn for Him and sense His nearness. Why don’t I pray for us and then we will enter into a time of singing.
+* Pray
+* Good Good Father (G)
+* This is Amazing Grace (G)
+* Today is a very special service because later this morning we’re going to be baptizing several people, which I’m really excited to witness... and in light of our baptism service, I felt that it would be good for us to sing a song that speaks of God’s desire for every person—regardless of their background, what sort of shameful things they may have done in the past, how unlovable they may feel, how hopeless they may be—to receive God’s forgiveness, to receive the power to be able to leave behind their sinful ways, and to be in a loving relationship with God. Let’s sing this together and give thanks to God for His invitation to come to Him, to know Him, and to lean on Him.
+* O Come to the Altar (A)
+* Sermon: Romans 6:1-11 - talking about how baptism symbolizes the new life that we have in Christ. Being a Christian isn’t just about a new approach to life or a new set of beliefs, but union w/ Jesus Christ.
+* Amazing Grace My Chains Are Gone (F)
+* Baptism
+* Son of God (G)
+* Prayer song: Come Thou Fount (E)
+
+## 2018-04-29 (ICC - Pastor Jared)
+* This I Believe (G)
+* Great Are You Lord (G)
+* Shout to the Lord (A)
+* Sermon: Acts 4:23-31 - Text is narrative of the prayer from the early believers when Peter and John were threatened by the religious leaders. How God wants to remind that we are safe and secure amidst fear and threats because of His sovereignty and invite us to pray for boldness and for God to show His power.
+* Let Your Glory Fall (G)
+* Worthy, Worthy (G)
+* Prayer song: Let My Words Be Few (G)
+
+## 2018-04-22 (ICC - Hamin)
+* Start pads > Good morning everyone! I’ve been reading through the gospels this past week and could not help myself but to start our service this morning by singing a song that declares who Jesus is. He is the anointed Son of God, who came to heal us, comfort us, set us free from the bondages of sin, and make it possible for us to know God and to be in a relationship with him. So at this time why don’t we stand and sing this song together?
+* Jesus (G)
+* You Are My King (D) => TL lead. Keyboard intro
+* Psalm 63:1-5 says "You, God, are my God, earnestly I seek you; I thirst for you, my whole being longs for you, in a dry and parched land where there is no water. I have seen you in the sanctuary and beheld your power and your glory. Because your love is better than life, my lips will glorify you. I will praise you as long as I live, and in your name I will lift up my hands. I will be fully satisfied as with the richest of foods; with singing lips my mouth will praise you."
+* Hungry (D) => TL lead. Guitar intro
+* Sermon: On Zacchaeus - how those of us who are not in vocational ministry are still called by God, similar to Zacchaeus. He was a man like Matthew that didn't fit the prototype of those Christ called... yet Christ had a plan to use him. For those of us who work in secular jobs, I hope to explore what our calling means before God.
+* Shine (G) => Guitar intro
+* God Be Praised (A) => Keyboard intro
+* Prayer song: All in All (G) => Guitar-driven
+
+## 2018-04-15 (ICC - Pastor Dave Lee)
+* Start pads.
+* Good morning everyone! In Psalm 66:16-20, it says "Come and hear, all you who fear God; let me tell you what he has done for me. I cried out to him with my mouth; his praise was on my tongue. If I had cherished sin in my heart, the Lord would not have listened; but God has surely listened and has heard my prayer. Praise be to God, who has not rejected my prayer or withheld his love from me!” Before we enter into a time of singing, can we take a moment and pray? Let’s pray prayers of thanksgiving and give thanks to God for how he listens to our prayers & hears our singing. It does not matter if our prayers sound eloquent or not, it does not matter if our pitch & tempo is off when we sing—what matters is what’s in our hearts. Let’s pray that this service would honor Jesus & ask that the Holy Spirit would enable us to encounter the living God this morning. [PRAY]
+* O Praise the Name (A)
+* Worthy Of It All (A) => Start w/ chorus
+* Let’s sing this next song that was introduced on Easter Sunday. And as we sing this song, remember the following words that are written in Romans 8:11, which says: “If the Spirit of God who raised Jesus from the dead is living in you, he who raised Christ from the dead will also give life to your mortal bodies because of his Spirit who lives in you."
+* Resurrecting (C)
+* Sermon: “Led by the Spirit” based on Galatians 5:13-25. Focus on following themes:
+  * Jesus has given us the gift of true freedom but we don’t always feel free. The flesh and our old nature continue to pull us toward bondage and sin. The Spirit of God pulls us in the opposite direction (v17). This is illustrated by the distinction between the acts of the flesh and the fruit of the Spirit.
+  * Paul counsels us to walk and be led by the Spirit so that we will not gratify the desires of the flesh (v16). Too often we direct most of our energy towards fighting against our sinful desires rather than connecting and communing with the Holy Spirit. We will never win the battle against sin through self-denial alone. It is as we cling to God and commune with the Spirit that we are transformed from within and led into a new way of living.
+  * Biggest theme is really the power and fruitfulness and sweetness associated with pouring our energy into connecting with the Holy Spirit.
+* Give Us Clean Hands (G) => Start off with a lot of electric & pads. Intro chords: Gmaj7 D2 C2add4
+* As we sing the next song - especially as we sing the line - “Break my heart for what breaks Yours, everything I am for Your kingdom’s cause” - may we declare with our lips and in our hearts that our hearts would align with God’s heart and that our allegiance would not be the god of comfort, the god of security, the god of good standing in society, nor the god of money, but that our utmost allegiance would be to our Lord Jesus and that we would have a burning passion in our hearts to see God glorified in our lives and in this world.
+* Hosanna (E) => TL lead
+* Prayer Song: Lord I Need You (A)
+
+## 2018-04-08 (ICC - Dr. Steve)
+* Pads start in A
+* Good morning! Before we enter into a time of singing, I wanted to invite all of you to spend a little bit of time this morning in prayer, asking God to meet with us this morning and to help us deepen our knowledge of him as we go through this morning’s service. // PRAY: God it says in Your Word that "11 [Jesus] came to that which was his own, but his own did not receive him. 12 Yet to all who did receive him, to those who believed in his name, he gave the right to become children of God— 13 children born not of natural descent, nor of human decision or a husband’s will, but born of God.” - John 1:11-13
+* Overcome (A)
+* God, You’re So Good (A)
+* "Where can I go from your Spirit? Where can I flee from your presence? If I go up to the heavens, you are there; if I make my bed in the depths, you are there.” (Psalm 139:7-8) - As we continue in our worship, let’s ask God for more of Him & ask that we would be FILLED with the Holy Spirit of God.
+* Holy Spirit (E) => TL lead
+* Sermon: Examine the aspect of faith centered more on Hebrews 11:6—trusting in spiritual realities (centered largely on God’s promises) that we can’t see with our eyes.
+* And I heard a loud voice from the throne saying, “Look! God’s dwelling place is now among the people, and he will dwell with them. They will be his people, and God himself will be with them and be their God. ‘He will wipe every tear from their eyes. There will be no more death’ or mourning or crying or pain, for the old order of things has passed away.” (Revelation 21:3-4) - As God’s children, as people of faith - may we be encouraged & strengthened by the fact although our lives are filled with disappointments, pain, and shame - that with each passing day, we are one day closer to seeing Jesus face-to-face.
+* Soon (D) => TL lead
+* I Lift My Hands (A)
+* Prayer song: Refiner’s Fire (D) => TL lead
+
+## 2018-04-01 (ICC - Dr. Steve
+* Start pads - G
+* Good morning! Happy Easter to all of you! Roughly 2,000 years ago, there was great power that was demonstrated by God when he raised Jesus from his death on the cross. In Ephesians 1:18 - 23 the Apostle Paul wrote the following words: "I pray that the eyes of your heart may be enlightened in order that you may know the hope to which he has called you, the riches of his glorious inheritance in his holy people, and his incomparably great power for us who believe. That power is the same as the mighty strength he exerted when he raised Christ from the dead and seated him at his right hand in the heavenly realms, 21 far above all rule and authority, power and dominion, and every name that is invoked, not only in the present age but also in the one to come. And God placed all things under his feet and appointed him to be head over everything for the church, which is his body, the fullness of him who fills everything in every way.” // We want to celebrate the awe and the wonder of Christ’s resurrection this morning so why don’t you join us as we sing this morning?
+* Jesus Messiah (G)
+* O Come to the Altar (A)
+* Pads in C
+* The next song is a new song that we want to introduce to you. It’s a song that describes how Jesus who had a crown of thorns that was forcibly put on his head, who humbled himself to wash the feet of his disciples, who was crucified & took upon our sin & shame - well, God raised Jesus from the dead and we are called to declare & celebrate God’s victory over sin and death. Let’s sing this song together.
+* Resurrecting (C)
+* Sermon: Easter (building on themes of Jesus' kingship, faith, new life in the Surrendered series with particular emphasis on the resurrection)
+* At the Cross (E)
+* Prayer song: Nothing but the Blood (hymn) (E) => Play it upbeat
+
+## 2018-02-25 (ICC - Pastor Peter - Communion)
+* Start pads > Good morning, everyone! In Psalm 9:1-2, it says “I will give thanks to you, Lord, with all my heart;  I will tell of all your wonderful deeds. I will be glad and rejoice in you; I will sing the praises of your name, O Most High.” At this time, why don’t we all stand and start our service this morning by declaring the greatness of our God.
+* How Great is Our God (A)
+* Made Me Glad (A)
+* Pause to pray? God – help us to remember Your faithfulness and Your goodness and Your supernatural ability to deliver us in times of trouble. “The Lord is my light and my salvation; whom shall I fear? The Lord is the stronghold of my life; of whom shall I be afraid?” - Psalm 27:1
+* Always (A)
+* Sermon: Looking at how God calls us to love others (even our enemies) with his love and how He ultimately empowers us to love others through the love He demonstrates for us at the cross. In a book where there is so much concern for those that are perishing (e.g. sailors, Jonah for himself, the Ninevite King, Jonah for this plant) God shows the most concern for lost souls who are perishing by giving up His Son. (John 3:16)         
+* Mighty to Save (A)
+* Communion song: Lord, I Need You (A)
+* How Great is the Love (G)
+* Prayer song: None But Jesus (B)
+
+## 2018-02-18 (ICC - Pastor Peter)
+* Pads in G
+* Good morning! Why don’t we all stand and start our service this morning by altogether declaring our faith and our trust in our God – Father, Son, and the Holy Spirit. Let’s all sing this together.
+* This I Believe (G)
+* Jesus (G)
+* God – we thank You that You are a God who saves, You are a God who heals, and You are a God who takes much delight when we come to You in brokenness, in humility, and when we abandon our own self-seeking desires and come to You with great thirst and hunger. God – as we continue in our worship through singing, praying, hearing of Your Word, and fellowshipping with others – won’t You fix our eyes on You and help us encounter You this morning. We offer up our praises to You, God.
+* Pads in B
+* Crown Him (B)
+* Sermon: Scandalous nature of God’s grace that he would love and forgive those that we see as unredeemable and undeserving of God’s grace. It will show that the heart of God is beyond our understanding and comfort.
+* Unashamed (A)
+* Pads in G
+* This is Amazing Grace (G)
+* Prayer song: At the Cross (Love Ran Red) (A) => Pads in A
+
+## 2018-02-11 (ICC - Pastor Peter)
+* START CORE PADS – E
+* Psalm 86:5-7: You, Lord, are forgiving and good, abounding in love to all who call to you. Hear my prayer, Lord; listen to my cry for mercy. When I am in distress, I call to you, because you answer me.
+* Good Good Father (G)
+* There was some pretty significant dip in the stock market this past week and even though I’m not a huge investor in the stock market, anytime there’s a significant financial unrest, it reminds me that if our hope is built on the things of this world - such as money and material possessions - sooner or later our world is going to come crumbling down and we are going to be utterly disappointed and devastated. As we sing this next song - may we hear Jesus calling us to place our hope and our trust not in our finances, our skills, our status but in Him and in Him ONLY. // As we sing this song let’s keep Psalm 62:1-2 in mind, where it says: “Truly my soul finds rest in God; my salvation comes from him. Truly he is my rock and my salvation; he is my fortress, I will never be shaken."
+* Solid Rock (E) => Piano start!
+* Hosanna (E) => TL lead
+* Sermon: How God sometimes allows us to hit rock bottom in our sin so that we might be awakened to it and His salvation. From Jonah 2.
+* Pads - A
+* I Lift My Hands (A)
+* Share before next song
+* Always (B)
+* Pads - E
+* Prayer song: Your Mercy (E)
+
+## 2018-02-04 (ICC - Pastor Peter - Communion)
+* 10,000 Reasons (E)
+* This next song is a new song that I want to share w/ all of you & it’s a song that I think does a great job of reminding us that this life is NOT about us & making a name for ourselves & trying to build our own little kingdom here on Earth but rather, it’s about giving glory to God & making Jesus shine in our lives.
+* Crown Him (B) => Pads
+* Jesus, Jesus (B) => Pads
+* Sermon: Will be on Jonah 1 and basically look into the depths of Jonah's sinful heart and the irony of his response to God's call relative to who He understand God's to be. And how we need to look honestly inside ourselves and see the sin that resides to truly understand God's grace. Any songs that focus in on God's love and grace and/or our sinfulness would work well I think.
+* One Thing Remains (G) => Pads
+* Communion song: Nothing but the Blood (E)
+* Unashamed (A) => Pads
+* Prayer song: You are My King (D) => Guitar-driven
