@@ -31,6 +31,7 @@ We all have a spiritual thirst that we are trying to satisfy with different kind
 * Jesus Messiah (G)
 * Shout to the Lord (A)
 * Revelation Song (D)
+* [Spotify playlist](https://open.spotify.com/user/jbox222/playlist/5teeuwh0ewZgRqC86TqnW4?si=I2XD0ZnJS_y50JKieOlpdQ)
 
 ## 2019-05-02 (ICC - small group)
 * 10,000 Reasons (E)
