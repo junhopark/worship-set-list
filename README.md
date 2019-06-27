@@ -3,6 +3,18 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2019-06-30 (ICC - Lester)
+* Good morning, everyone! It's great to be here with all of you this morning & if you're new to our church, I want to extend a special welcome to you. This past week, I was watching a sermon video of this guy who teaches at my friend's church out in San Jose & he described how we, as Christians, NEED regular corporate worship gatherings because it forces us to look to God & look beyond ourselves & our worries & our own obsessions & anxieties - and I think that's so true. So, why don't we all do that this morning & remember the words written in Psalm 40:16 where it says "But may all who seek you rejoice and be glad in you; may those who long for your saving help always say, "The LORD is great!""
+* Jesus (G)
+* Many of us were at the church retreat last weekend & I was really blessed to attend & spend quality time in worship & fellowship with others. We sang the next song we're about to sing a few times at the retreat & I wanted us to sing it this morning as well because the song serves as a great reminder of God's great love for us & it is this love that enables Immanuel Community Church to be able to build a loving, loyal, and a close-knit community. Let's sing this song together.
+* O Come to the Altar (A) => Go right into next song
+* Made Me Glad (A) => TL sing lead
+* Sermon: Matthew 18:21-35 - "The Impossible Act of Forgiveness" - Focus on forgiving & why it's mandatory for Christians. Conclusion: Forgiveness of God in Christ on the cross = the stopping point of perpetual vengeance - Jesus absorbing the pain rather than blasting us back with wrath and justified retribution. We are called to partake in this as God's children & become agents of stopping the cycle of evil and suffering in our world.
+* At the Cross (Love Ran Red) (A)
+* This is Amazing Grace (G)
+* Prayer song: You Are My King (D)
+* [Spotify playlist](https://open.spotify.com/user/jbox222/playlist/5xsrBPDy79raIASY9EDYBu?si=M-F5ABnkSOWuhyyIlioNtg)
+
 ## 2019-06-16 (ICC - Missionary Richard Joe)
 * How Great is Our God (A)
 * Ephesians chpt 2 v8 tells us that it is by God's grace that we have been saved and that it's a gift of God and NOT something that we have earned. Let's give thanks to God for his faithful love for us as we sing this next song
