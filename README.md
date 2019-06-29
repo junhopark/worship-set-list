@@ -3,6 +3,15 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2019-07-02 (ICC - Prayer meeting - Lead from keys/piano)
+* 10,000 Reasons (E)
+* Share before next song
+* My Worth Is Not in What I Own (C)
+* Solid Rock - Breakaway (E)
+* Prayer meeting
+* Lord I Want to Know You More (G)
+* I Need Thee Every Hour (G)
+
 ## 2019-06-30 (ICC - Lester)
 * Good morning, everyone! It's great to be here with all of you this morning & if you're new to our church, I want to extend a special welcome to you. This past week, I was watching a sermon video of this guy who teaches at my friend's church out in San Jose & he described how we, as Christians, NEED regular corporate worship gatherings because it forces us to look to God & look beyond ourselves & our worries & our own obsessions & anxieties - and I think that's so true. So, why don't we all do that this morning & remember the words written in Psalm 40:16 where it says "But may all who seek you rejoice and be glad in you; may those who long for your saving help always say, "The LORD is great!""
 * Jesus (G)
