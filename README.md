@@ -20,6 +20,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Made Me Glad (A) => TL sing lead
 * Sermon: Matthew 18:21-35 - "The Impossible Act of Forgiveness" - Focus on forgiving & why it's mandatory for Christians. Conclusion: Forgiveness of God in Christ on the cross = the stopping point of perpetual vengeance - Jesus absorbing the pain rather than blasting us back with wrath and justified retribution. We are called to partake in this as God's children & become agents of stopping the cycle of evil and suffering in our world.
 * At the Cross (Love Ran Red) (A)
+* "Jesus has demonstrated His great love for us by willingly going to the cross and taking OUR place on the cross - and this is something that ought to cause us to praise Him & give Him thanks - so why don't we do that as we sing this last song before the benediction?"
 * This is Amazing Grace (G)
 * Prayer song: You Are My King (D) => TL sing lead
 * [Spotify playlist](https://open.spotify.com/user/jbox222/playlist/5xsrBPDy79raIASY9EDYBu?si=M-F5ABnkSOWuhyyIlioNtg)
