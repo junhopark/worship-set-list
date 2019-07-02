@@ -4,8 +4,9 @@ This is a list of my own worship sets that I've been keeping track of over the y
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2019-07-02 (ICC - Prayer meeting - Lead from keys/piano)
+* Psalm 86:11-13: Teach me your way, LORD, that I may rely on your faithfulness; give me an undivided heart, that I may fear your name. I will praise you, Lord my God, with all my heart; I will glorify your name forever. For great is your love toward me; you have delivered me from the depths, from the realm of the dead.
 * 10,000 Reasons (E)
-* Share before next song
+* This next song we're about to sing reminds us that as Christians, our worth & our deepest sense of identity should come from knowing that God loves us and that God made us His children by sending Jesus to the cross and paying the penalties of our sin on that cross. The struggle to not base our worth in the size of our bank & retirement accounts, our jobs, our skills, or our appearances, is a real struggle that probably all of us regularly deal with... but as we sing this next song, can we ask that God would enable us to look to Him to find our self-worth?
 * My Worth Is Not in What I Own (C)
 * Solid Rock - Breakaway (E)
 * Prayer meeting
