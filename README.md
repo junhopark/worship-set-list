@@ -3,8 +3,36 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2019-08-11 (ICC - Pastor Chris)
+* Possible song: May the Peoples Praise You (C)
+* Possible song: My Worth Is Not In What I Own (C)
+
+## 2019-08-04 (ICC - Pastor Chris)
+* Reminders: Use piano instead of keyboard
+* Good morning, everyone! We're glad that you're here to worship with us this morning. I wanted to start our service this morning by reading Psalm 103:8-13 where it says: "The LORD is compassionate and gracious, slow to anger, abounding in love. He will not always accuse, nor will he harbor his anger forever; he does not treat us as our sins deserve or repay us according to our iniquities. For as high as the heavens are above the earth, so great is his love for those who fear him; as far as the east is from the west, so far has he removed our transgressions from us. As a father has compassion on his children, so the LORD has compassion on those who fear him." Let's all stand together and sing - and the first song we're going to sing this morning is a well-known hymn that's been around for about 150 years.
+* I Need Thee Every Hour (G) => No/very little drums. Acoustic guitar start.
+* Even though we live in a world filled with violence, hatred, injustice, unfairness, and a lot of sadness... as Christians we can be confident and wait for the day when God will make all things new & beautiful & RIGHT just like it says in Revelation 21:4-5, where it says "God will wipe every tear from their eyes. There will be no more death or mourning or crying or pain, for the old order of things has passed away. He who was seated on the throne said, "I am making everything new!"
+* Is He Worthy (C) => Piano start. Repeat V3 -> C.
+* Living Hope (C) => Piano start right after previous song.
+* Sermon: On 1 Peter 1:3-9; "Joy Comes in the Morning"
+* This next song we're about to sing is, I think, is not an easy song for many of us to sing, incl. myself. It talks about how there's nothing in this world that could ever satisfy and I wonder if that's really true in my life and in the lives of many Christians I know because my heart is so often deeply satisfied by worldly things--like money and nice things and approval from other people. The song talks about how our souls will sing through every trial. And I think about some of the trials I've faced during my Christian life and I'll be honest with you in that it was really difficult to sing praises to God during those times. The song talks about how heaven is our home--and to be honest, I think about my life, fast forward many years - and I think about retirement, I get pretty excited thinking about it... and then I rarely fast forward beyond that. I often don't fast forward towards being in heaven with God and with other Christians. // As we sing this song, may this song challenge us to think about how we are living our lives as Christians. Where do we find our hope & our joy? What, or who do we trust in?
+* Christ is Enough (A) => 2 count > Electric + Piano. JJ lead.
+* Made Me Glad (A) => 4 count > Piano. TL lead.
+* Prayer song: Soon (D) => No/very little drums. TL lead.
+* [Spotify playlist](https://open.spotify.com/playlist/6QPzYSF5wXYggeIiKOy5w7?si=kEeKbo5nRqCXdOB8T95bCg)
+
+## 2019-07-30 (ICC - Worship team rehearsal)
+* Reminders: Include violin. Make sure to get
+* Is He Worthy (C) => Focus on the keyboard parts
+* Overcome (E) => Skipped at rehearsal
+* May the Peoples Praise You (C)
+* Living Hope (C)
+* Holy Spirit (D) => Skipped at rehearsal
+* Mighty is the Power of the Cross (F or E) => Skipped at rehearsal
+* [Spotify playlist](https://open.spotify.com/user/jbox222/playlist/1NGNrDHa6CfB3VgRgYPodZ?si=ph9QiI7WSp26hXuEhr8HQw)
+
 ## 2019-07-02 (ICC - Prayer meeting - Lead from keys/piano)
-* Psalm 86:11-13: Teach me your way, LORD, that I may rely on your faithfulness; give me an undivided heart, that I may fear your name. I will praise you, Lord my God, with all my heart; I will glorify your name forever. For great is your love toward me; you have delivered me from the depths, from the realm of the dead.
+* I read the following verses this morning and I thought that sharing these verses would be a good way for us to start our prayer meeting. Psalm 86:11-13: Teach me your way, LORD, that I may rely on your faithfulness; give me an undivided heart, that I may fear your name. I will praise you, Lord my God, with all my heart; I will glorify your name forever. For great is your love toward me; you have delivered me from the depths, from the realm of the dead.
 * 10,000 Reasons (E)
 * This next song we're about to sing reminds us that as Christians, our worth & our deepest sense of identity should come from knowing that God loves us and that God made us His children by sending Jesus to the cross and paying the penalties of our sin on that cross. The struggle to not base our worth in the size of our bank & retirement accounts, our jobs, our skills, or our appearances, is a real struggle that probably all of us regularly deal with... but as we sing this next song, can we ask that God would enable us to look to Him to find our self-worth?
 * My Worth Is Not in What I Own (C)
