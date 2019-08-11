@@ -4,8 +4,18 @@ This is a list of my own worship sets that I've been keeping track of over the y
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2019-08-11 (ICC - Pastor Chris)
-* Possible song: May the Peoples Praise You (C)
-* Possible song: My Worth Is Not In What I Own (C)
+* Good morning - it's great to have join us for worship! Let's all stand and start our service by singing a song that gives thanks to God for his goodness.
+* Good Good Father (G): Start off on acoustic guitar. Follow the recording.
+* In Psalm 67:3-5 it says "May the peoples praise you, God; may all the peoples praise you. May the nations be glad and sing for joy, for you rule the peoples with equity and guide the nations of the earth. May the peoples praise you, God; may all the peoples praise you." Let's praise God as we sing this next song.
+* May the Peoples Praise You (C): TL lead; Start off w/ acoustic guitar + violin; Rest of instruments come in 2nd half of intro.
+* Is He Worthy (C): Start with piano intro on C.
+* Sermon: The Joy of Giving (1 Timothy 6:17-19)
+* Note: Tune guitar to DADGAD
+* My Worth Is Not In What I Own (D): Start on acoustic guitar; No/little drums
+* Revelation Song (D): TL lead; 4 count > piano + acoustic guitar to start song
+* I Will Offer Up My Life (E): Start off on acoustic guitar
+* [Spotify playlist](https://open.spotify.com/playlist/5vsI2hzNQlFwTQyqUq36Il?si=xXT4_R-VQu-urkpuxyf2BA)
+
 
 ## 2019-08-04 (ICC - Pastor Chris)
 * Reminders: Use piano instead of keyboard
