@@ -3,6 +3,30 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2019-08-27 (ICC Rehearsal)
+* He Will Hold Me Fast (A)
+* The Lord is My Salvation (A)
+* His Mercy is More (E)
+* Great Things (E)
+* Made Me Glad (A)
+* God, The Uncreated One (King Forevermore)
+
+## 2019-08-25 (ICC - Abey)
+* Reminders: Set up monitor next to piano; Close piano lid; Guitar instrumental music during elder installation; Type extra words for God You're So Good; Share Sing! video;
+* "Good morning, everyone! It's great to be here with you all this morning and I'm excited to be able to worship our living God with you all in this place. I wanted to start off our service by reading Psalm 96:1-6 *together* in a loud voice. This passages is a great call-to-worship passage and I thought it would be a good way to start our service. We're gonna have the words projected on the screen and I want to ask you all to read it with me. Let's all stand together and read this together *out loud*."
+* "Sing to the Lord a new song; sing to the Lord, all the earth. Sing to the Lord, praise his name; proclaim his salvation day after day. Declare his glory among the nations, his marvelous deeds among all peoples. For great is the Lord and most worthy of praise; he is to be feared above all gods. For all the gods of the nations are idols, but the Lord made the heavens. Splendor and majesty are before him; strength and glory are in his sanctuary."
+* This is Amazing Grace (G): Start off on acoustic guitar. Primarily acoustic + electric in V1. Other instruments come in Chorus.
+* "This past week, Tricia, Sean, Pastor Peter, Joyce, and I were down in Nashville for a church worship conference called the Sing! conference - which is a conference that most of us attended around this time last year. And it was really awesome to be at this conference where we got to spend many hours together in fellowship, eat a lot of good & very heavy southern food, hear from some of the most revered Christian teachers & pastors, and to me - the very best part of this experience was worshiping God with over 10,000 Christians from around 50 countries and several times when we were all singing our praises to God, my mind & my heart was pointed towards heaven & thinking about how as amazing as this experience is, I am sure this experience pales in comparison to what worship will be like in heaven when I am so much closer to God's presence & am worshiping God with Christians throughout history and in a world where there is no more death, sorrow, crying, or pain. As we sing this next song, may we get a small glimpse of what worshiping in heaven will be like."
+* I Stand Amazed (E): TL sing lead melody. Start off with acappella chorus X 2 > Intro > Verse 1 (repeat)
+* God You're So Good (A): Piano start. Sing extra words at end of song:
+  * God answers prayer; God answers prayer; God answers prayer; He's so good to me
+  * He cares for me; He cares for me; He cares for me; He's so good to me
+* Sermon: "Who am I" - Search for identity & struggle to define it in terms of ethnicity, family, career. Life of Moses & his struggle with his own identity and his encounter with God at the burning bush. Touch on our identity in Christ & struggle to live it out.
+* Psalm 23 (A): Violin start the song with intro melody > acoustic guitar to follow. Acoustic guitar-driven & strong violin presence. Full band starting in V2. End with violin intro.
+* Song during communion: O Come to the Altar (G): JJ sing lead.
+* Amazing Grace - My Chains are Gone (F): JJ sing lead. Acoustic guitar-driven. A lot of violin during non-singing parts of the song.
+* Prayer song: We Fall Down (E): Acoustic guitar-driven. Simple.
+
 ## 2019-08-11 (ICC - Pastor Chris)
 * Good morning - it's great to have join us for worship! Let's all stand and start our service by singing a song that gives thanks to God for his goodness.
 * Good Good Father (G): Start off on acoustic guitar. Follow the recording.
