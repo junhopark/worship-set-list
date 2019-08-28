@@ -4,12 +4,10 @@ This is a list of my own worship sets that I've been keeping track of over the y
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2019-08-27 (ICC Rehearsal)
-* He Will Hold Me Fast (A)
-* The Lord is My Salvation (A)
 * His Mercy is More (E)
-* Great Things (E)
-* Made Me Glad (A)
-* God, The Uncreated One (King Forevermore)
+* The Lord is My Salvation (A)
+* God, The Uncreated One (King Forevermore) (F to G)
+* Great Things (G)
 
 ## 2019-08-25 (ICC - Abey)
 * Reminders: Set up monitor next to piano; Close piano lid; Guitar instrumental music during elder installation; Type extra words for God You're So Good; Share Sing! video;
@@ -23,9 +21,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
   * He cares for me; He cares for me; He cares for me; He's so good to me
 * Sermon: "Who am I" - Search for identity & struggle to define it in terms of ethnicity, family, career. Life of Moses & his struggle with his own identity and his encounter with God at the burning bush. Touch on our identity in Christ & struggle to live it out.
 * Psalm 23 (A): Violin start the song with intro melody > acoustic guitar to follow. Acoustic guitar-driven & strong violin presence. Full band starting in V2. End with violin intro.
-* Song during communion: O Come to the Altar (G): JJ sing lead.
-* Amazing Grace - My Chains are Gone (F): JJ sing lead. Acoustic guitar-driven. A lot of violin during non-singing parts of the song.
-* Prayer song: We Fall Down (E): Acoustic guitar-driven. Simple.
+* Prayer song: Amazing Grace - My Chains are Gone (F): JJ sing lead. Acoustic guitar-driven. A lot of violin during non-singing parts of the song.
 
 ## 2019-08-11 (ICC - Pastor Chris)
 * Good morning - it's great to have join us for worship! Let's all stand and start our service by singing a song that gives thanks to God for his goodness.
