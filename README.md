@@ -3,9 +3,19 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2019-09-24 (ICC Rehearsal)
+* His Mercy is More (E)
+* The Lord is My Salvation (G)
+* God, The Uncreated One (King Forevermore) (F to G)
+* Great Things (G)
+* Psalm 23 (Surely Goodness, Surely Mercy) (A)
+* Is He Worthy (C)
+* God Be Praised (A)
+* [Spotify Playlist](https://open.spotify.com/playlist/3duPiufJ7QcfWpSBQpFLg8?si=tF3YC3aHTPC2Rwt0kO01bw)
+
 ## 2019-08-27 (ICC Rehearsal)
 * His Mercy is More (E)
-* The Lord is My Salvation (A)
+* The Lord is My Salvation (G)
 * God, The Uncreated One (King Forevermore) (F to G)
 * Great Things (G)
 
