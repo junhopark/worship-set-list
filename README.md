@@ -3,6 +3,32 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## (upcoming songs for October 2019)
+* Great Things (G)
+* God, The Uncreated One (King Forevermore) (F to G)
+* Revelation Song (D)
+
+## 2019-10-06 (ICC - Dr. Steve)
+* Note: DADGAD tuning on the guitar; Try out in-ears; Try out keyboard;
+* "Good morning, everyone. I have the wonderful privilege of leading us in worship this morning and I'd like to start our service this morning by giving thanks to God for his mercy & forgiveness for us. This morning, as we come together to worship God, may we be reminded that no matter how good and polished we try to appear on the outside, we are all sinners in need of God's forgiveness. In Psalm 86:5-7 it says "You, Lord, are forgiving and good, abounding in love to all who call to you. Hear my prayer, Lord; listen to my cry for mercy. When I am in distress, I call to you, because you answer me." Let's all stand and sing our first song together"
+* His Mercy is More (E): Start w/ guitar + violin;
+* How Great is Your Love (A)
+* "Psalm 27:1 says "The Lord is my light and my salvation— whom shall I fear? The Lord is the stronghold of my life— of whom shall I be afraid?" This next song reminds us that our God is a God who saves us, protects us, and gives us hope--not only for this life but for life eternal. Let's sing this song together.
+* The Lord is My Salvation (G): TL sing lead
+* Sermon: 2 Sam 17–18. The theme will be entrusting ourselves to God rather than always trying to orchestrate our own outcomes and how God will be faithful to his promises like he was with David.
+* Who You Are (G): 4 count > Piano start;
+* Great is Thy Faithfulness (D): JJ sing lead; Pads, Guitar, Keyboard start; Shaker-only for drums
+* Prayer song: Everlasting God (One thing I know...) (G): TL sing lead; No bridge; Keyboard start
+* [Spotify Playlist](https://open.spotify.com/playlist/4a3YmbZ4ZZU17xA3f8TJuR?si=98rDkViRQpy51Ew_vUReYw)
+
+## 2019-10-02 (ICC Prayer Meeting)
+* 10,000 Reasons (E)
+* Share before next song
+* He Will Hold Me Fast (A)
+* Psalm 23 (Surely Goodness, Surely Mercy) (A)
+* You Are My King (E)
+* How Great is Your Love (A)
+
 ## 2019-09-24 (ICC Rehearsal)
 * His Mercy is More (E)
 * The Lord is My Salvation (G)
