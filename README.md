@@ -8,6 +8,24 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * God, The Uncreated One (King Forevermore) (F to G)
 * Revelation Song (D)
 
+## 2019-10-20 (ICC - Dr. Steve)
+* Sermon: 2 Samuel 18-19 about the death of Absalom and David mourning him. Explore the tension between the need for justice (Absalom needed to be stopped) and love/mercy. Ultimately, the cross is the greatest answer to this tension. Therefore, any songs that focus on how justice and mercy were met on the cross will fit well with the message.
+* COMMUNION
+
+## 2019-10-13 (ICC - Pastor Peter)
+* Notes: Use in-ear; DADGAD tuning; Tune instruments before entering sanctuary;
+* "Good morning, everyone! It's great to have you join us for worship this morning and the next 90 minutes that we get to spend together is a special time for us where we will get to sing praises to God, listen to His word being preached, and pray together. I want to read from Psalm 103:20-22 and it says: "Praise the Lord, you his angels, you mighty ones who do his bidding, who obey his word. Praise the Lord, all his heavenly hosts, you his servants who do his will. Praise the Lord, all his works everywhere in his dominion." Let's all stand and sing this song together--10,000 reasons."
+* 10,000 Reasons (E): Joseph sing lead
+* Man of Sorrows (D): 4 count > Start on acoustic guitar + Violin; Rest of instruments come in V2; Chorus breakdown
+* Let's continue to worship our King Jesus - the Lamb of God who was slain but rose from the grave and sits at the right hand of God the Father on heavenly throne & sing Holy, holy, holy is the Lord God Almighty, Who was and is and is to come"
+* Revelation Song (D): TL sing lead; Guitar start > violin shortly thereafter; keyboard 2nd half of intro
+* Sermon: Psalm 23 - trusting in God's goodness and mercy through all the different circumstances in our lives and exploring how David comes to this place as he pens this iconic Psalm.
+* Pastor Peter leads Psalm 23 (Surely Goodness, Surely Mercy) (A)
+* Made Me Glad (A): TL sing lead; 4 count > keyboard intro
+* Always (A): Violin play electric riff part; Violin + acoustic guitar intro
+* Prayer song: Refiner's Fire (E): Mostly guitar + violin; Shaker-only on drums
+* [Spotify Playlist](https://open.spotify.com/playlist/0KrIIDibJYgp1lJFzPZppN?si=IzRSxqZ8TzChCWL2Fr1caw)
+
 ## 2019-10-06 (ICC - Dr. Steve)
 * Note: DADGAD tuning on the guitar; Try out in-ears; Try out keyboard;
 * "Good morning, everyone. I have the wonderful privilege of leading us in worship this morning and I'd like to start our service this morning by giving thanks to God for his mercy & forgiveness for us. This morning, as we come together to worship God, may we be reminded that no matter how good and polished we try to appear on the outside, we are all sinners in need of God's forgiveness. In Psalm 86:5-7 it says "You, Lord, are forgiving and good, abounding in love to all who call to you. Hear my prayer, Lord; listen to my cry for mercy. When I am in distress, I call to you, because you answer me." Let's all stand and sing our first song together"
@@ -16,7 +34,8 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * "Psalm 27:1 says "The Lord is my light and my salvation— whom shall I fear? The Lord is the stronghold of my life— of whom shall I be afraid?" This next song reminds us that our God is a God who saves us, protects us, and gives us hope--not only for this life but for life eternal. Let's sing this song together.
 * The Lord is My Salvation (G): TL sing lead
 * Sermon: 2 Sam 17–18. The theme will be entrusting ourselves to God rather than always trying to orchestrate our own outcomes and how God will be faithful to his promises like he was with David.
-* Who You Are (G): 4 count > Piano start;
+* Talk about being reminded of God's faithfulness as I read my own journal entry from 10 years ago while at a recent personal retreat
+* Who You Are (G): 4 count > Piano start
 * Great is Thy Faithfulness (D): JJ sing lead; Pads, Guitar, Keyboard start; Shaker-only for drums
 * Prayer song: Everlasting God (One thing I know...) (G): TL sing lead; No bridge; Keyboard start
 * [Spotify Playlist](https://open.spotify.com/playlist/4a3YmbZ4ZZU17xA3f8TJuR?si=98rDkViRQpy51Ew_vUReYw)
