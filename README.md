@@ -3,14 +3,31 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## (upcoming songs for October 2019)
+## (upcoming songs for October 2019 / Songs to rehearse)
 * Great Things (G)
 * God, The Uncreated One (King Forevermore) (F to G)
 * Revelation Song (D)
+* God Be Praised (A)
+
+## 2019-10-27 (ICC - Dr. Steve)
+* Notes: Acoustic band
+* God, The Uncreated One (King Forevermore) (F to G)
+* He Will Hold Me Fast (A)
 
 ## 2019-10-20 (ICC - Dr. Steve)
+* Notes: DADGAD tuning; Use IEM;
+* Share while pads on G: "Good morning everyone! It's great to have you join us for worship this morning. In Psalm 66:5-9 it says "Come and see what God has done, his awesome deeds for mankind! He turned the sea into dry land, they passed through the waters on foot--come, let us rejoice in him. He rules forever by his power, his eyes watch the nations--let not the rebellious rise up against him. Praise our God, all peoples, let the sound of his praise be heard; he has preserved our lives and kept our feet from slipping." Let us come and worship our God and remember the wonderful works that He has done from the creation of the universe, to sustaining us this very moment."
+* Great Things (G): Pads on keys for opening set; Acoustic guitar start;
+* Holy Spirit (D): Tricia sing lead; Acoustic guitar start & acoustic guitar-driven
+* While pads sitting on A: "Before we sing the next song--which focuses on God being our refuge & protector in our times of trouble--I wanted us to not sing for a moment and instead, to pray and reflect and ask ourselves the question - what are the things in your life that trouble you, cause you to be anxious & scared, and what are the things in your life that you feel like causes your heart & your soul to NOT be at rest? Through prayer - can we bring them to God right now? And after a minute of doing this, we will start singing the next song"
+* Always (A): Electric start > Acoustic + hi-hat
 * Sermon: 2 Samuel 18-19 about the death of Absalom and David mourning him. Explore the tension between the need for justice (Absalom needed to be stopped) and love/mercy. Ultimately, the cross is the greatest answer to this tension. Therefore, any songs that focus on how justice and mercy were met on the cross will fit well with the message.
-* COMMUNION
+* Notes: Change to standard tuning on acoustic guitar
+* Living Hope (C): Joseph sing lead
+* Communion + Communion song: Nothin But the Blood (hymn) (E)
+* Build My Life (G): Start on acoustic guitar
+* Prayer song: Enough (G): Joseph sing lead; No bass; no drums; Acoustic guitar fingerpicking driven
+* [Spotify Playlist](https://open.spotify.com/playlist/2HV44zG5egrE794rkoLNbB?si=wUfvSv3YTO6Ws9x09nM8GQ)
 
 ## 2019-10-13 (ICC - Pastor Peter)
 * Notes: Use in-ear; DADGAD tuning; Tune instruments before entering sanctuary;
@@ -22,7 +39,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Sermon: Psalm 23 - trusting in God's goodness and mercy through all the different circumstances in our lives and exploring how David comes to this place as he pens this iconic Psalm.
 * Pastor Peter leads Psalm 23 (Surely Goodness, Surely Mercy) (A)
 * Made Me Glad (A): TL sing lead; 4 count > keyboard intro
-* Always (A): Violin play electric riff part; Violin + acoustic guitar intro
+* Always (A): Violin play electric riff part; Violin + acoustic guitar intro => Skipped due to lack of time
 * Prayer song: Refiner's Fire (E): Mostly guitar + violin; Shaker-only on drums
 * [Spotify Playlist](https://open.spotify.com/playlist/0KrIIDibJYgp1lJFzPZppN?si=IzRSxqZ8TzChCWL2Fr1caw)
 
