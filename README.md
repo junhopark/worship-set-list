@@ -3,14 +3,17 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## (upcoming songs for October 2019 / Songs to rehearse)
+## 2019-10-29 (ICC Worship Team Rehearsal)
+* Notes: Focus on in-ear mix; Be sure to save mixer scene
 * Great Things (G)
 * God, The Uncreated One (King Forevermore) (F to G)
-* Revelation Song (D)
 * God Be Praised (A)
+* My Worth Is Not In What I Own (D): DADGAD tuning;
+* Is He Worthy (C)
+* [Spotify Playlist](https://open.spotify.com/playlist/7HBwjfQ0cM6Uyhvof7wX27?si=dSIJOB8eRemjCXac5bdCiA)
 
 ## 2019-10-27 (ICC - Dr. Steve)
-* Notes: Acoustic band
+* Notes: Electric guitar + acoustic guitar only band;
 * God, The Uncreated One (King Forevermore) (F to G)
 * He Will Hold Me Fast (A)
 
