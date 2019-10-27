@@ -13,9 +13,21 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * [Spotify Playlist](https://open.spotify.com/playlist/7HBwjfQ0cM6Uyhvof7wX27?si=dSIJOB8eRemjCXac5bdCiA)
 
 ## 2019-10-27 (ICC - Dr. Steve)
-* Notes: Electric guitar + acoustic guitar only band;
-* God, The Uncreated One (King Forevermore) (F to G)
-* He Will Hold Me Fast (A)
+* Notes: Use iPhone for pads; Electric guitar + acoustic guitar only band; No in-ears;
+* Share while pads in G: "Good morning, everyone! I want to start off our service by reading from Psalm 66:1-4 - "Shout for joy to God, all the earth! Sing the glory of his name; make his praise glorious. Say to God, "How awesome are your deeds!" So great is your power that your enemies cringe before you. All the earth bows down to you; they sing praise to you, they sing the praises of your name." At this time, why don't we all stand and join us as we sing Awesome is the Lord Most High"
+* Awesome is the Lord Most High (G): Tricia/Joseph tambourine;
+* Share: "In 2 Corinthians 5:17-18 it says "Therefore, if anyone is in Christ, the new creation has come: The old has gone, the new is here! All this is from God, who reconciled us to himself through Christ and gave us the ministry of reconciliation" - This next song is a new song that we want to introduce to you all & it speaks to how our Savior's death on the cross has provided a way for us to have a brand new life in Christ Jesus."
+* Death Was Arrested (A)
+* Mighty to Save (A)
+* Sermon: 2 Samuel 24—the census that David took. The focus of the message will be on how to the very end of his life, David demonstrated that he was a flawed man, and yet the continual recipient of God’s grace. Songs that focus on God’s grace and mercy would fit well with the message, as well as ones that may highlight his faithfulness throughout our lives.
+* At the Cross (Love Ran Red)(A)
+* God You're So Good (A): Joseph sing lead
+* Prayer song: Lord I Need You (A)
+* [Spotify Playlist](https://open.spotify.com/playlist/7EHdUwKUMxSfpHKLFEWcaB?si=Fnq-iyxuQM-rPnU3S4lb3g)
+
+## 2019-10-24 (ICC - Small group)
+* 10,000 Reasons (E)
+* Lord Most High (E)
 
 ## 2019-10-20 (ICC - Dr. Steve)
 * Notes: DADGAD tuning; Use IEM;
