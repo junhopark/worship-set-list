@@ -3,6 +3,56 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## POTENTIAL SONGS FOR DECEMBER 2019
+* His Name Shall Be (Redman) (A)
+* Prince of Heaven (Hillsong) (A)
+* What a Beautiful Name (Hillsong) (D)
+* Joy to the World (Unspeakable Joy) (A -> B)
+* Hark the Herald Angels Sing (E)
+* Gloria (A)
+* Your Name (Christmas Version) (A)
+* Jesus, Son of God (A)
+* Jesus Messiah (G)
+* How Great is the Love (G)
+* Midnight Clear (Love Song) (G)
+* O Come All Ye Faithful (G)
+* The Lord is My Salvation (A or B)
+
+## 2019-12-15 (ICC - Pastor Peter)
+* Notes: Use floor monitors; all plug into Monitor 1
+* "Good morning, everyone! I want to welcome all of you to our service this morning and I'm glad that you can join us for worship. This morning we are continuing in series of advent services and with today's theme being 'peace' - I wanted to read a couple of verses from Psalm 91 that speaks to the peace that God offers us. In Psalm 91:1-2 it says 'Whoever dwells in the shelter of the Most High will rest in the shadow of the Almighty. I will say of the Lord, "He is my refuge and my fortress, my God, in whom I trust."' I find that December can often be an unusually busy time for many of us and between family gatherings, holiday shopping, busyness at work with the calendar year wrapping up - things can feel really chaotic. I want to invite all of you at this time to spend a couple of minutes to pray and calm your busy minds and bring our worries and our troubles before God."
+* O Come All Ye Faithful (G): Start on acoustic guitar
+* Great Things (G)
+* "Last night I was reading through the lyrics of the song we're about to sing & when I came across the following words in the song where it says - 'I will put my trust in You alone & I will not be shaken' - I was reflecting on the fact that the concept of trusting in God has often felt unclear to me during much of my Christian life. But as I was reading through some blog entries on the topic of trusting in God & as I was reflecting on some of the conversations that were happening during the community group meeting I was at a few nights ago - I realized that when we trust in God - I think it means that when times are hard, we go towards God instead of moving away from Him. It means that we spend more time in prayer & that we become more intentional about seeking God. It means that when you really want certain something to take place but then the door ends up shutting down on you, you eventually come to understand that God still loves You and that God is still faithful and that it's possible that God was even actively involved in shutting that door on you out of His love & care for you. I'm sharing this because I hope that reflecting on what it means to trust in God will be helpful for us as we sing this next song. Those of us who may find ourselves going through a difficult time in our lives - may we sense God calling us to place our trust in Him and to turn to Him"
+* Build My Life (G)
+* sermon: In our rebellion we have declared war with God. This rebellion is also reflected in our inability to have peace in our relationships with others. But God has extended peace with us through the giving of His Son - the Prince of Peace.
+* Jesus, Only Jesus (B)
+* Jesus Paid It All (B)
+* Prayer song: You Are My King (D): Violin start....? Tricia sing lead
+* [Spotify Playlist](https://open.spotify.com/playlist/7kL7f5cgpBiVBsqvHn8FCL?si=epG5oODGTxqDRQNQ71AD-g)
+
+## 2019-12-08 (ICC - Dr. Steve)
+* "Good morning, everyone! I want to start off our service by reading from Psalm 66:1-4 - "Shout for joy to God, all the earth! Sing the glory of his name; make his praise glorious. Say to God, "How awesome are your deeds!" So great is your power that your enemies cringe before you. All the earth bows down to you; they sing praise to you, they sing the praises of your name." At this time, why don't we all stand and join us as we sing Awesome is the Lord Most High"
+* His Name Shall Be (A): Acoustic guitar start
+* Jesus, Son of God (A): 4 count > electric guitar start; Pads on keyboard
+* How Great is the Love (G): Acoustic guitar start; TL sing lead
+* Sermon:
+* The Lord is My Salvation (B): 4 count; JP sing lead
+* Hark the Herald Angels Sing (E): Acoustic guitar start
+* Prayer song: Your Name (Christmas version) (A): Acoustic-guitar driven; Pads on keyboard
+* [Spotify Playlist](https://open.spotify.com/playlist/5ekafgao6VWkNWXdduyIpJ?si=Idc7tWJBSCGABaFMdI0Oaw)
+
+
+## 2019-12-01 (ICC - Dr. Steve)
+* Jesus Messiah (G): 4 count > acoustic + electric guitar start
+* His Name Shall Be (A): Acoustic guitar start & acoustic guitar-driven
+* Midnight Clear (A): Acoustic guitar start
+* Sermon: How Jesus meets our deepest hopes in life, showing us God’s love in such a dramatic way through the incarnation
+* His Name Shall Be (A)
+* Living Hope (C): Keyboard start
+* Prayer song: Hark the Herald Angels Sing (E): Acoustic guitar start & acoustic guitar-driven. Keep it relatively quiet.
+* [Spotify Playlist](https://open.spotify.com/playlist/6vHyWjK0OHCv42st3L4f6Q?si=vVPFzdk6RJuhJxWd3vFI7Q)
+
 ## 2019-10-29 (ICC Worship Team Rehearsal)
 * Notes: Focus on in-ear mix; Be sure to save mixer scene
 * Great Things (G)
