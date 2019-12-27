@@ -3,20 +3,28 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## POTENTIAL SONGS FOR DECEMBER 2019
-* His Name Shall Be (Redman) (A)
-* Prince of Heaven (Hillsong) (A)
-* What a Beautiful Name (Hillsong) (D)
-* Joy to the World (Unspeakable Joy) (A -> B)
-* Hark the Herald Angels Sing (E)
-* Gloria (A)
-* Your Name (Christmas Version) (A)
-* Jesus, Son of God (A)
-* Jesus Messiah (G)
-* How Great is the Love (G)
-* Midnight Clear (Love Song) (G)
-* O Come All Ye Faithful (G)
-* The Lord is My Salvation (A or B)
+## 2019-12-29 (ICC - Pastor Peter)
+* Notes: Lead on keyboard
+* God The Uncreated One (King Forevermore) (F -> G)
+* Cornerstone (G)
+* My Worth Is Not In What I Own (D)
+* Sermon: Psalm 95 - why (or the benefits) of committing ourselves to church/worship on Sundays. Call for people to make it a priority to come on Sundays in the new year and engage in worship. Blessings of corporate worship in community and how it awakens us to God's power, sovereignty and love and care for His people.
+* Let Your Glory Fall (G)
+* Communion song: Remembrance (D)
+* Revelation Song (D)
+* Prayer song: Lord Have Mercy (For What We Have Done) (C)
+* [Spotify Playlist](https://open.spotify.com/playlist/5ZMLfH2IILJKr6Qq5usICa?si=svO7n_MLQXSEfxIQJI7efw)
+
+## 2019-12-22 (ICC - Dr. Steve)
+* Come Into His Presence (C): Children + acoustic guitar only
+* O Come All Ye Faithful (G): With Christmas choir
+* Joy to the World (Unspeakable Joy) (Bb): With Christmas choir
+* What a Beautiful Name (D): With Christmas choir
+* Sermon: Love. Reference a few passages in Hosea highlighting how God loves us despite who we are, and how it is an act of faith to receive this love that God offers us.
+* Jesus, Son of God (A): 4 count > electric guitar start; Pads on keyboard
+* Midnight Clear (Love Song) (A): Acoustic guitar start
+* [Spotify Playlist](https://open.spotify.com/playlist/4I8szcPAPIejN622m5fQJg?si=wj-_-UURT9O7I-H9Pqf9Gg)
+
 
 ## 2019-12-15 (ICC - Pastor Peter)
 * Notes: Use floor monitors; all plug into Monitor 1
@@ -46,7 +54,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 ## 2019-12-01 (ICC - Dr. Steve)
 * Jesus Messiah (G): 4 count > acoustic + electric guitar start
 * His Name Shall Be (A): Acoustic guitar start & acoustic guitar-driven
-* Midnight Clear (A): Acoustic guitar start
+* Midnight Clear (Love Song)(A): Acoustic guitar start
 * Sermon: How Jesus meets our deepest hopes in life, showing us God’s love in such a dramatic way through the incarnation
 * His Name Shall Be (A)
 * Living Hope (C): Keyboard start
@@ -202,7 +210,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * I read the following verses this morning and I thought that sharing these verses would be a good way for us to start our prayer meeting. Psalm 86:11-13: Teach me your way, LORD, that I may rely on your faithfulness; give me an undivided heart, that I may fear your name. I will praise you, Lord my God, with all my heart; I will glorify your name forever. For great is your love toward me; you have delivered me from the depths, from the realm of the dead.
 * 10,000 Reasons (E)
 * This next song we're about to sing reminds us that as Christians, our worth & our deepest sense of identity should come from knowing that God loves us and that God made us His children by sending Jesus to the cross and paying the penalties of our sin on that cross. The struggle to not base our worth in the size of our bank & retirement accounts, our jobs, our skills, or our appearances, is a real struggle that probably all of us regularly deal with... but as we sing this next song, can we ask that God would enable us to look to Him to find our self-worth?
-* My Worth Is Not in What I Own (C)
+* My Worth Is Not in What I Own (D)
 * Solid Rock - Breakaway (E)
 * Prayer meeting
 * Lord I Want to Know You More (G)
