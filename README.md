@@ -7,6 +7,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Notes: Lead on keyboard
 * God The Uncreated One (King Forevermore) (F -> G)
 * Cornerstone (G)
+* "Why don’t we continue in our worship by singing this next song together - which serves as a great reminder to us that our worth isn’t found in our possessions, how much money we make, how we look, but our worth is found in the fact that Jesus loves us for who we are. Let’s sing this song together."
 * My Worth Is Not In What I Own (D)
 * Sermon: Psalm 95 - why (or the benefits) of committing ourselves to church/worship on Sundays. Call for people to make it a priority to come on Sundays in the new year and engage in worship. Blessings of corporate worship in community and how it awakens us to God's power, sovereignty and love and care for His people.
 * Let Your Glory Fall (G)
