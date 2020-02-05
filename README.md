@@ -3,6 +3,33 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2020-02-16
+* Possible songs: Behold the Lamb (A)
+
+## 2020-02-09 (ICC - Dr. Steve)
+* Notes: No Violin.
+* "Good morning, everyone! It's great to be with you all on this Sunday morning. Let me read a few verses from the Book of Psalms and then pray and then we'll spend some time singing together. In Psalm 86:11-13 it says "Teach me your way, Lord, that I may rely on your faithfulness; give me an undivided heart, that I may fear your name. I will praise you, Lord my God, with all my heart; I will glorify your name forever. For great is your love toward me; you have delivered me from the depths, from the realm of the dead." Let's pray together."
+* This I Believe (G): Acoustic guitar + Electric guitar start
+* One of my most heartwarming moments with my son these days is when he picks out a particular phrase or from the lyrics of a worship song and ask me "appa - what does this mean?" // A few weeks ago he asked me what the opening words of the next song means - where it says "Do you feel the world is broken?" What does it mean that the world is broken? And the way I explained it to him was that something is broken when it is not working as it was originally made to be. We live in a fallen world and this world can seem so broken often times. Things are not the way that God intended them to be. I just finished an amazing book that recounts what happened during the Sep 11 terrorist attacks and as I read the final pages of the book I thought to myself, yeah, this world is so very broken.
+
+AND YET - as Christians - we have faith and we believe that God is still in control. He is still faithful. He has a plan that will usher in a new world as it's talked about in Revelation 21. And the world WILL one day be the way that God intended it to be. This is the God we worship. And He IS worthy of our adoration.
+
+We’ve sung this song a few times here at ICC and I would like to try to sing this song as the song was intended to be sung. The song is structured in a way that it raises a number of questions and then those questions are responded to in different ways. I'll sing the "leader" parts and I want to ask the rest of you to sing all of the other parts that you'll see noted on the screen.
+* Is He Worthy (C)
+* Worthy Of It All (A): Guitar intro
+* Sermon: Different ways that we can overcome our idolatries. The primary focus will be the role of God’s Word and the community of God’s people (particularly corporate worship). Issue of spiritual disciplines and the retraining of our loves to turn from idols to God.
+* Who You Are (G): Keyboard intro
+* God Be Praised (A): Keyboard intro; Tricia sing lead
+* Prayer song: Give Me Jesus (C): Guitar-led; Joseph sing lead
+
+## 2020-01-28 (ICC Worship Team Rehearsal)
+* Lord Have Mercy (For What We Have Done) (C)
+* Behold the Lamb (A)
+* Is He Worthy (C)
+* God Be Praised (A)
+* May the People Praise You (C) => Skipped
+* [Spotify Playlist](https://open.spotify.com/playlist/0ezM9pFfUCwtqsejfvWWGW?si=YlMkcqoSSUS06pWmu7PK6g)
+
 ## 2020-01-08 (ICC Prayer Meeting)
 * I Need Thee Every Hour (G)
 * Build My Life (G)
