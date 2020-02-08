@@ -21,6 +21,7 @@ We’ve sung this song a few times here at ICC and I would like to try to sing t
 * Who You Are (G): Keyboard intro
 * God Be Praised (A): Keyboard intro; Tricia sing lead
 * Prayer song: Give Me Jesus (C): Guitar-led; Joseph sing lead
+* [Spotify Playlist](https://open.spotify.com/playlist/1jooFg0QhjDNyqL00WbAZi?si=TNkmKrrjTme7K2lEUShlwQ)
 
 ## 2020-01-28 (ICC Worship Team Rehearsal)
 * Lord Have Mercy (For What We Have Done) (C)
