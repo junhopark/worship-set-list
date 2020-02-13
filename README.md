@@ -3,8 +3,17 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## 2020-02-16
-* Possible songs: Behold the Lamb (A)
+## 2020-02-16 (ICC - AK)
+* “Good morning, everyone! Praise God for giving us this privilege of worshiping together. I want to read a few verses from Psalm 18:1-3 as we start our service this morning. It says: I love you, LORD, my strength. The LORD is my rock, my fortress and my deliverer; my God is my rock, in whom I take refuge, my shield and the horn of my salvation, my stronghold. I called to the Lord, who is worthy of praise, and I have been saved from my enemies. At this time let's all stand and sing about Christ the solid Rock on which we stand"
+* Solid Rock (E): Keyboard intro.
+* His Mercy is More (E): Start w/ Chorus w/ big vocals. Violin prominent in intro.
+* Share: "As we just sang, our God is merciful to us. Despite our many sins, despite our rebellion, despite our faithlessness so often in our lives - our God is faithful to us, He is loving towards us, and as we are about to sing, we have in Jesus a savior who willingly went to the cross to shed his blood and to pay for the penalties of our sin. Let's sing this song together."
+* Before the Throne of God (C): Guitar-led;
+* Sermon: Hebrews 4:14-16. God the Holy King (4:16), Jesus the high priest (4:14-15), God our helper (4:16)
+* Living Hope (C): Acoustic guitar-driven. Violin prominent. Joseph sing lead.
+* God the Uncreated One (F -> G): 4 count > full band w/ keyboard intro.
+* Prayer: As We Seek / Jesus Draw Me Close (G): Guitar-led & driven.
+* [Spotify Playlist](https://open.spotify.com/playlist/0Amg0UtkoBY8yvEkUmkSUn?si=HOHHLuU2SGWcC-W8nPREBQ)
 
 ## 2020-02-09 (ICC - Dr. Steve)
 * Notes: No Violin.
