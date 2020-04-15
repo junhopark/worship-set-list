@@ -3,6 +3,39 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2020-04-19 (ICC - Pastor Peter; Pre-recorded)
+
+## 2020-04-19 (ICC - Pastor Peter)
+* "Good morning, ICC! I wanted to start this service by reading a few verses from Psalm 113 (Psalm 113:1-3). In verses 1-3 it says "Praise the Lord. Praise the Lord, you his servants; praise the name of the Lord. Let the name of the Lord be praised, both now and forevermore. From the rising of the sun to the place where it sets, the name of the Lord is to be praised." Please join me as I sing & let's give praise to God through singing"
+* Blessed Be Your Name (A)
+* Come Thou Fount (E)
+* Solid Rock (E)
+* Sermon: Philippians 1:12-18. We lose faith in God when His ways do not align with our ways or our expectations of how life should unfold. But when we fully entrust ourselves to Him, God will open our eyes to all the extraordinary things He is doing and use us to draw people to Himself.
+* Build My Life (G)
+
+## 2020-03-04 (ICC - Prayer Meeting)
+* His Mercy Is More (E)
+* Psalm 23 (A)
+* Share
+* Give Me Jesus (C)
+* Let My Words Be Few (G)
+* In Christ Alone (E)
+
+## 2020-02-23 (ICC - RC)
+* DADGAD tuning on the guitar;
+* Psalm 105:1-4: “Give praise to the Lord, proclaim his name; make known among the nations what he has done. Sing to him, sing praise to him; tell of all his wonderful acts. Glory in his holy name; let the hearts of those who seek the Lord rejoice. Look to the Lord and his strength; seek his face always.”
+* 10000 Reasons (E): Keyboard intro
+* Share: As we sing the next song I hope all of us will be convicted of just how sinful we are and yet despite our many sins, we can still be in a loving relationship with the perfect God of the universe thanks to Jesus and his sacrifice on the cross, which paid the penalties of our sin. Let’s sing this together.
+* Man of Sorrows (D): Acoustic guitar start
+* Revelation Song (D): Tricia sing lead. 4 count > piano + violin first half of intro; rest of band come in second half of intro
+* Sermon: Rich young ruler passage in Luke 18. Primarily about the love of money and fully giving ones life to God. What prevents us from fully following Jesus?
+* Share: I wanted us to sing this next song together because when I sing this song it often reminds me of how often I look to money to fulfill the roles that God is supposed to fill for my life. I have often looked to money to provide me with security, self-worth, protect me from potential troubles, and money has really consumed my mind more often than I’d like to admit. My guess is that money has also been a god to many of you during the course of your lives. So as we sing this next song may we hear Holy Spirit speak into hearts asking us to be satisfied in God alone and to trust in God above all else, including our wealth.
+* My Worth Is Not In What I Own (D): Acoustic guitar start
+* Communion Song: Mighty is the Power of the Cross (F): Acoustic guitar-driven
+* Build My Life (G): Joseph sing lead
+* Prayer song: I Will Offer Up My Life (E)
+* [Spotify Playlist](https://open.spotify.com/playlist/3AfcZTCbOTPU3BvVcnBCtJ?si=5vQA5R-rRNeHQll1XVbCFA)
+
 ## 2020-02-16 (ICC - AK)
 * “Good morning, everyone! Praise God for giving us this privilege of worshiping together. I want to read a few verses from Psalm 18:1-3 as we start our service this morning. It says: I love you, LORD, my strength. The LORD is my rock, my fortress and my deliverer; my God is my rock, in whom I take refuge, my shield and the horn of my salvation, my stronghold. I called to the Lord, who is worthy of praise, and I have been saved from my enemies. At this time let's all stand and sing about Christ the solid Rock on which we stand"
 * Solid Rock (E): Keyboard intro.
