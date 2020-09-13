@@ -3,13 +3,39 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## 2020-04-19 (ICC - Pastor Peter; Pre-recorded)
+## 2020-09-13 (ICC - DL)
+* "In Psalm 148:1-6 it says: Praise the Lord.Praise the Lord from the heavens; praise him in the heights above. Praise him, all his angels; praise him, all his heavenly hosts. Praise him, sun and moon; praise him, all you shining stars. Praise him, you highest heavens and you waters above the skies. Let them praise the name of the Lord, for at his command they were created, and he established them for ever and ever— he issued a decree that will never pass away. // Pls join me as we sing our first song this morning - O Praise the Name of the Lord Our God"
+* O Praise the Name (G#)
+* God the Uncreated One (F -> G)
+* Sermon: Prayers that focus on various internal dynamics that may be affecting us during the pandemic. Holiness, devotion, peace.
+* Build My Life (G)
+* I Lift My Hands (Bb)
+
+## 2020-08-08 (ICC - DL)
+* Sermon: Spiritual dynamics related to the pandemic and charge people to be attentive to how all this is affecting their souls. Focus on holiness, devotion, peace.
+* Psalm 23 (Surely Goodness, Surely Mercy) (A)
+* You Are My King (D)
+
+## 2020-08-01 (ICC - HC)
+* Sermon: On the topic of vocation. Being loving, self giving, sacrificial image bearers we are called to be through our work.
+* Shine (G)
+* Hosanna (E)
+
+## 2020-07-15 (ICC - Pastor Peter)
+* Sermon: John 8:1-11 - Living lives like Jesus - full of grace and truth in a world that only wants one or the other. Story of the adulterous woman and Jesus's mercy towards her as the example of this. Focus on Jesus's love and mercy and truth.
+* Living Hope (C)
+* This is Amazing Grace (G)
+
+## 2020-04-26 (ICC - Dr. Steve; Pre-recorded)
+* 10,000 Reasons (E)
+* God the Uncreated One (F > G)
+* Sermon: Importance of using this time to reprioritize our lives and to take stock of our lives as we shelter-in-place during this time. Challenging the church to embrace simplicity, solitude, and an unhurried attitude during this time to listen for God’s voice.
+* My Worth is Not in What I Own (C)
 
 ## 2020-04-19 (ICC - Pastor Peter)
 * "Good morning, ICC! I wanted to start this service by reading a few verses from Psalm 113 (Psalm 113:1-3). In verses 1-3 it says "Praise the Lord. Praise the Lord, you his servants; praise the name of the Lord. Let the name of the Lord be praised, both now and forevermore. From the rising of the sun to the place where it sets, the name of the Lord is to be praised." Please join me as I sing & let's give praise to God through singing"
 * Blessed Be Your Name (A)
 * Come Thou Fount (E)
-* Solid Rock (E)
 * Sermon: Philippians 1:12-18. We lose faith in God when His ways do not align with our ways or our expectations of how life should unfold. But when we fully entrust ourselves to Him, God will open our eyes to all the extraordinary things He is doing and use us to draw people to Himself.
 * Build My Life (G)
 
