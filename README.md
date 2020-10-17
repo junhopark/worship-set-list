@@ -3,6 +3,25 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+
+## 2020-10-18 (ICC - Dr. Steve)
+* Hosanna (F#)
+* Revelation Song (E)
+
+## 2020-10-04 (ICC - Dr. Steve)
+* Always (C)
+* Living Hope (C)
+* Sermon: Holiness of God. God is other, different than us, and to be revered as such, and how it calls us to live holy lives, set apart for his purposes and to live in righteousness to reflect God's own holiness.
+* Who You Are (G)
+* I Give You My Heart (G)
+
+## 2020-09-20 (ICC - Dr. Steve)
+* This is Amazing Grace (G)
+* Jesus Messiah (G)
+* Sermon: 3 kingdom parables in Matthew 13:24-43. How outwardly it seems as if God's kingdom isn't very impressive, but that God is nevertheless accomplishing his mission through us and to the world & His kingdom is present even now
+* Let Your Glory Fall (G)
+* Hosanna (G): JJ sing lead
+
 ## 2020-09-13 (ICC - DL)
 * "In Psalm 148:1-6 it says: Praise the Lord.Praise the Lord from the heavens; praise him in the heights above. Praise him, all his angels; praise him, all his heavenly hosts. Praise him, sun and moon; praise him, all you shining stars. Praise him, you highest heavens and you waters above the skies. Let them praise the name of the Lord, for at his command they were created, and he established them for ever and ever— he issued a decree that will never pass away. // Pls join me as we sing our first song this morning - O Praise the Name of the Lord Our God"
 * O Praise the Name (G#)
