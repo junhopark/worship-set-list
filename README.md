@@ -3,6 +3,9 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2020-10-25 (ICC - Dr. Steve)
+* Holy Spirit (G)
+* As We Seek / Jesus Draw Me Close (G)
 
 ## 2020-10-18 (ICC - Dr. Steve)
 * Hosanna (F#)
