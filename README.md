@@ -3,6 +3,30 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2021-02-21 (ICC - Dr. Steve)
+* Sermon: Philemon: https://bibleproject.com/church-at-home/week20-philemon/
+
+## 2021-02-14 (ICC - Dr. Steve)
+* Sermon: Generosity. Challenging us to see generosity as the posture of faith rather than scarcity and fear. https://bibleproject.com/church-at-home/week1-generosity/
+* Made Me Glad (C)
+* I Will Offer Up My Life (D#)
+
+## 2021-01-10 (ICC - Dr. Steve)
+* Call to worship: Psalm 71:1-6 (ESV)
+* Living Hope (C)
+* Sermon: Water of life
+* Made Me Glad (C)
+
+## 2021-01-03 (ICC - Dr. Steve)
+* Blessed Be Your Name (A)
+* Sermon: Sabbath rest
+* Better is One Day (E)
+
+## 2020-11-22 (ICC - Dr. Steve)
+* 10,000 Reasons (F)
+* I Will Wait For You (Bb)
+* Hungry (F)
+
 ## 2020-10-25 (ICC - Dr. Steve)
 * Holy Spirit (G)
 * As We Seek / Jesus Draw Me Close (G)
