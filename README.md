@@ -3,8 +3,53 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## 2021-02-21 (ICC - Dr. Steve)
-* Sermon: Philemon: https://bibleproject.com/church-at-home/week20-philemon/
+## 2021-06-27 (ICC - Dr. Steve)
+* Psalm 105:1-4: Give praise to the Lord, proclaim his name; make known among the nations what he has done. Sing to him, sing praise to him; tell of all his wonderful acts. Glory in his holy name; let the hearts of those who seek the Lord rejoice. Look to the Lord and his strength; seek his face always
+* O Praise the Name (A)
+* Sermon: Matthew 5:13-16 (being salt and light). How we are called to make an impact in our world as citizens of God's kingdom, doing good works in his name.
+* Shine (G)
+* God You're So Good (A)
+
+## 2021-06-20 (ICC - Pastor Peter)
+* DADGAD tuning, tuned half step lower
+* Jesus Messiah (G)
+* Sermon: Exploring the heart of Jesus by understanding what evoked emotions in him during his life and ministry (Mark 3:1-6; John 11:33-35). How Jesus's heart is always for those who are deeply affected by the brokenness of this world and his emotions demonstrate how he shares in the pain of the broken and seeks to address it while much of the world ignores it.
+* This is Our God (G)
+* Living Hope (Db)
+
+## 2021-06-06 (ICC - Dr. Steve)
+* DADGAD tuning
+* Psalm reading?
+* 10,000 Reasons (F)
+* The Kingdom is Yours (F)
+* Sermon: Second message on the Beatitudes with a focus on how God cares for the marginalized, the weak, the powerless, and how we need to embody these same values as citizens of his kingdom
+* The Kingdom is Yours (F)
+* Who You Are (G)
+
+
+## 2021-05-23 (ICC - Dr. Steve)
+* His Mercy Is More (E)
+* Sermon: Beatitudes. Those that society disregards (those who mourn, are meek, poor in spirit, etc.) are the very ones who God identifies with and cares for. They are also the ones who hear the good news of the gospel and enter the kingdom.
+* Come As You Are (B)
+* The Lord Is My Salvation (B)
+
+## 2021-04-18 (ICC - Dr. Steve)
+* Awesome is the Lord Most High (G)
+* Sermon: Seeing the church as God's family. Intergenerational ministry importance.
+* Amazing Grace (E)
+* God Be Praised (A)
+
+## 2021-04-11 (ICC - Dr. Steve)
+* Psalm 8 - NIV
+* Lord I Lift Your Name On High (G): Invite children to grab instruments; put back afterwards
+* Sermon
+* God You're So Good (A)
+* Build My Life (G)
+
+## 2021-02-21 (ICC - HC)
+* Sermon: Philemon: https://bibleproject.com/church-at-home/week20-philemon/ Emphasis on peace and equality. In God's new family people are not Greek or Jewish, circumcised or uncircumcised, slave or free. Gospel frees us to accept and love others at another level.
+* Amazing Grace My Chains Are Gone (E)
+* Jesus Paid It All (B)
 
 ## 2021-02-14 (ICC - Dr. Steve)
 * Sermon: Generosity. Challenging us to see generosity as the posture of faith rather than scarcity and fear. https://bibleproject.com/church-at-home/week1-generosity/
