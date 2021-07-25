@@ -3,6 +3,17 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2021-08-08 (ICC - Chris)
+* Note: Family Service
+
+## 2021-07-25 (ICC - Dr. Steve)
+* Bible passage: Psalm 145:1-7: I will exalt you, my God the King; I will praise your name for ever and ever. Every day I will praise you and extol your name for ever and ever. Great is the Lord and most worthy of praise; his greatness no one can fathom. One generation commends your works to another; they tell of your mighty acts. They speak of the glorious splendor of your majesty—and I will meditate on your wonderful works. They tell of the power of your awesome works—and I will proclaim your great deeds. They celebrate your abundant goodness and joyfully sing of your righteousness.
+* How Great is Our God (A)
+* Revelation Song (D)
+* Sermon: Matthew 5:27-30. Adultery + lust. Focus on importance of our hearts or having clean & pure heart before God
+* The Kingdom is Yours (G)
+* Give Us Clean Hands (G)
+
 ## 2021-06-27 (ICC - Dr. Steve)
 * Psalm 105:1-4: Give praise to the Lord, proclaim his name; make known among the nations what he has done. Sing to him, sing praise to him; tell of all his wonderful acts. Glory in his holy name; let the hearts of those who seek the Lord rejoice. Look to the Lord and his strength; seek his face always
 * O Praise the Name (A)
