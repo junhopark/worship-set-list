@@ -5,6 +5,13 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 
 ## 2021-08-08 (ICC - Chris)
 * Note: Family Service
+* Good morning to all of you! It's great to be able to worship the Lord this morning with several generations of people gathered together for our family worship service. And for those of you worshiping with us at home - I want to welcome all of you to our service as well.
+* Read Psalm 100:1-5: Shout for joy to the Lord, all the earth. Worship the Lord with gladness; come before him with joyful songs. Know that the Lord is God. It is he who made us, and we are his; we are his people, the sheep of his pasture. Enter his gates with thanksgiving and his courts with praise; give thanks to him and praise his name. For the Lord is good and his love endures forever; his faithfulness continues through all generations.
+* 10,000 Reasons (E)
+* This is Amazing Grace (G)
+* Sermon: Joy.
+* Living Hope (C)
+* Lord I Need You (A)
 
 ## 2021-07-25 (ICC - Dr. Steve)
 * Bible passage: Psalm 145:1-7: I will exalt you, my God the King; I will praise your name for ever and ever. Every day I will praise you and extol your name for ever and ever. Great is the Lord and most worthy of praise; his greatness no one can fathom. One generation commends your works to another; they tell of your mighty acts. They speak of the glorious splendor of your majesty—and I will meditate on your wonderful works. They tell of the power of your awesome works—and I will proclaim your great deeds. They celebrate your abundant goodness and joyfully sing of your righteousness.
