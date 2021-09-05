@@ -3,6 +3,29 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2021-09-26 (ICC - Dr. Steve)
+
+## 2021-09-19 (ICC - Dr. Steve)
+
+## 2021-09-12 (ICC - Dr. Steve)
+
+## 2021-09-05 (ICC - Dr. Steve)
+* Psalm 113:1-3: Good morning! In Psalm 113:1 - 3 it says "Praise the Lord. Praise the Lord, you his servants; praise the name of the Lord. Let the name of the Lord be praised, both now and forevermore. From the rising of the sun to the place where it sets, the name of the Lord is to be praised." Why don't we all stand and give praise to our God this morning with singing.
+* O Praise the Name (A)
+* You Are My King (E)
+* Sermon: Not swearing oaths (Matthew 5:33-37). The focus will be on how we shouldn't try to manipulate people with our speech but to speak with honesty and integrity.
+* Let My Words Be Few (G)
+* Build My Life (G)
+
+
+## 2021-08-29 (ICC - Pastor Peter)
+* Note: Lead on keyboard. Consider using pads
+* God the Uncreated One (F -> G)
+* Mid-year report
+* King of Kings (E)
+* Sermon: On community and how God calls us into community so that we might persevere in our faith and grow in the likeness of Christ. Hebrews 10:19-25.
+* Let Your Glory Fall (G)
+
 ## 2021-08-08 (ICC - Chris)
 * Note: Family Service
 * Good morning to all of you! It's great to be able to worship the Lord this morning with several generations of people gathered together for our family worship service. And for those of you worshiping with us at home - I want to welcome all of you to our service as well.
