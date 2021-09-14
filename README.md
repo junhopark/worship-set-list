@@ -6,8 +6,18 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 ## 2021-09-26 (ICC - Dr. Steve)
 
 ## 2021-09-19 (ICC - Dr. Steve)
+*
+*
+* Sermon: Matthew 5:38-41 (turning the other cheek). The focus will be on our call as Christians to respond to injustices with love, grace, and forgiveness because this is the way God treats us.
+* The Kingdom is Yours (G)
+* 
 
-## 2021-09-12 (ICC - Dr. Steve)
+## 2021-09-12 (ICC - Pastor Frank)
+* Man of Sorrows (D)
+* Revelation Song (D)
+* Sermon: On Prayer
+* The Kingdom is Yours (G)
+* How Great is The Love (G)
 
 ## 2021-09-05 (ICC - Dr. Steve)
 * Psalm 113:1-3: Good morning! In Psalm 113:1 - 3 it says "Praise the Lord. Praise the Lord, you his servants; praise the name of the Lord. Let the name of the Lord be praised, both now and forevermore. From the rising of the sun to the place where it sets, the name of the Lord is to be praised." Why don't we all stand and give praise to our God this morning with singing.
