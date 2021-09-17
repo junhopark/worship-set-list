@@ -6,11 +6,11 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 ## 2021-09-26 (ICC - Dr. Steve)
 
 ## 2021-09-19 (ICC - Dr. Steve)
-*
-*
+* I Stand Amazed (E)
+* His Mercy is More (E)
 * Sermon: Matthew 5:38-41 (turning the other cheek). The focus will be on our call as Christians to respond to injustices with love, grace, and forgiveness because this is the way God treats us.
 * The Kingdom is Yours (G)
-* 
+* Hosanna (E)
 
 ## 2021-09-12 (ICC - Pastor Frank)
 * Man of Sorrows (D)
