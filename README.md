@@ -3,7 +3,22 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2021-10-24 (ICC - AM)
+* Psalm 96:1-4 Sing a new song to the LORD! Let the whole earth sing to the LORD! Sing to the LORD; praise his name. Each day proclaim the good news that he saves. Publish his glorious deeds among the nations. Tell everyone about the amazing things he does. Great is the LORD! He is most worthy of praise! He is to be feared above all gods.
+* 10,000 Reasons (E)
+* Mighty to Save (A)
+* Sermon: Matthew 6:11 "Give us today our daily bread". Dependence on God for all our daily needs is going to be the central theme of the sermon. What it means for us as individuals and what it means for us as a church - to be caring and compassionate to others.
+* Breathe (A)
+* Jesus Only Jesus (A)
+* Blessed Be Your Name (A)
+
 ## 2021-09-26 (ICC - Dr. Steve)
+* This is Amazing Grace (G)
+* May the Peoples Praise You (D)
+* Awesome is the Lord Most High (G) (Optional)
+* Sermon: Matthew 5:43-48. Topic is loving our enemies. Build on previous Sunday sermon. Focus will be on love as the primary approach to every one of our relationships—even difficult ones, because God is love. Songs that focus on God’s love and mercy toward us would work well.
+* Jesus Paid It All (B)
+* His Mercy is More (E)
 
 ## 2021-09-19 (ICC - Dr. Steve)
 * I Stand Amazed (E)
