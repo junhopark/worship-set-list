@@ -3,6 +3,12 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2022-01-16 (ICC - Dr. Steve)
+* O Praise the Name (A)
+* Goodness of God (A)
+* Sermon: Matthew 6:19-24 (treasures in Heaven). The focus will be on the idolatry of money and our call to live our lives freed from the bondage of living for material things but worshipping God instead.
+* My Worth Is Not In What I Own (D)
+
 ## 2021-10-24 (ICC - AM)
 * Psalm 96:1-4 Sing a new song to the LORD! Let the whole earth sing to the LORD! Sing to the LORD; praise his name. Each day proclaim the good news that he saves. Publish his glorious deeds among the nations. Tell everyone about the amazing things he does. Great is the LORD! He is most worthy of praise! He is to be feared above all gods.
 * 10,000 Reasons (E)
@@ -954,7 +960,7 @@ Songs to rehearse:
 * Made Me Glad (A)
 * Pause to pray? God – help us to remember Your faithfulness and Your goodness and Your supernatural ability to deliver us in times of trouble. “The Lord is my light and my salvation; whom shall I fear? The Lord is the stronghold of my life; of whom shall I be afraid?” - Psalm 27:1
 * Always (A)
-* Sermon: Looking at how God calls us to love others (even our enemies) with his love and how He ultimately empowers us to love others through the love He demonstrates for us at the cross. In a book where there is so much concern for those that are perishing (e.g. sailors, Jonah for himself, the Ninevite King, Jonah for this plant) God shows the most concern for lost souls who are perishing by giving up His Son. (John 3:16)         
+* Sermon: Looking at how God calls us to love others (even our enemies) with his love and how He ultimately empowers us to love others through the love He demonstrates for us at the cross. In a book where there is so much concern for those that are perishing (e.g. sailors, Jonah for himself, the Ninevite King, Jonah for this plant) God shows the most concern for lost souls who are perishing by giving up His Son. (John 3:16)
 * Mighty to Save (A)
 * Communion song: Lord, I Need You (A)
 * How Great is the Love (G)
