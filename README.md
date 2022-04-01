@@ -3,6 +3,26 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2022-04-03 (ICC - LC) 
+* Found in You (C)
+* Living Hope (C)
+* Sermon: "I Am the Bread of Life" We are to feast on Jesus, the Bread of Life, who satisfies the deepest needs and longings of our hearts, on to eternal life. 
+* Christ is Enough (A)
+* Soon (E)
+
+## 2022-03-01 (ICC - Dr. Steve)
+* This I Believe (G)
+* Build My Life (G)
+* Sermon: Matthew 7:1-5 (Do not judge). The focus will be on how we are not called to judge others. This is something that God alone has the authority to do. God's heart of mercy toward us as a model for our own treatment of others.
+* Nineveh (C?)
+* Hosanna (E)
+
+## 2022-02-13 (ICC - Pastor Peter)
+* Who You Are (G)
+* Revelation Song (D)
+* Sermon: Story of Mary in Luke 1. How God uses a nondescript humble teenage girl to carry out his mission and reveal his upside-down kingdom to the world as a powerful example of how God not only blesses the broken but blesses the broken so that they can in turn bless the world. Focus on Mary's song (magnificat) in the latter part of Luke 2 and the faith she displayed in trusting God.
+* Unashamed (A)
+
 ## 2022-01-16 (ICC - Dr. Steve)
 * O Praise the Name (A)
 * Goodness of God (A)
