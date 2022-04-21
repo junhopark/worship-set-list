@@ -3,6 +3,11 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2021-04-23 (ICC - Men's Breakfast)
+* 10,000 Reasons (F) - Capo 1
+* Is He Worthy (C) - Capo 5
+* Build My Life (G)
+
 ## 2022-04-03 (ICC - LC) 
 * Found in You (C)
 * Living Hope (C)
