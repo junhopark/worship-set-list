@@ -3,7 +3,24 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## 2021-04-23 (ICC - Men's Breakfast)
+## 2022-05-29 (ICC - Dr. Steve)
+* 
+* 
+* Sermon: Matthew 7:12
+* 
+* 
+
+Living Hope
+
+
+## 2022-05-01 (ICC - Pastor Peter)
+* Goodness of God (A)
+* Is He Worthy (C): Women / Men split parts
+* Sermon: Theme of mental health and unpack a bit how God cares for our mind as well as our heart and soul and that even the most venerated men of God (e.g. Moses, David, Elijah, Paul) encountered dark seasons of depression and anxiety.
+* Come As You Are (C)
+* Who You Are (G)
+
+## 2022-04-23 (ICC - Men's Breakfast)
 * 10,000 Reasons (F) - Capo 1
 * Is He Worthy (C) - Capo 5
 * Build My Life (G)
@@ -19,7 +36,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * This I Believe (G)
 * Build My Life (G)
 * Sermon: Matthew 7:1-5 (Do not judge). The focus will be on how we are not called to judge others. This is something that God alone has the authority to do. God's heart of mercy toward us as a model for our own treatment of others.
-* Nineveh (C?)
+* Nineveh (C)
 * Hosanna (E)
 
 ## 2022-02-13 (ICC - Pastor Peter)
