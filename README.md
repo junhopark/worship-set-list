@@ -4,14 +4,11 @@ This is a list of my own worship sets that I've been keeping track of over the y
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2022-05-29 (ICC - Dr. Steve)
-* 
-* 
-* Sermon: Matthew 7:12
-* 
-* 
-
-Living Hope
-
+* Found in You (C)
+* Living Hope (C)
+* Sermon: Matthew 7:12 - do to others as you would have them do to you. The focus will be on how love ought to be the defining characteristic of the disciple. 
+* Remembrance (D)
+* His Mercy Is More (E)
 
 ## 2022-05-01 (ICC - Pastor Peter)
 * Goodness of God (A)
