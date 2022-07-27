@@ -3,6 +3,13 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2022-07-31 (ICC - Pastor Peter)
+* God the Uncreated One (F -> G)
+* Go (G -> A)
+* Sermon: Missions-focused. God works in mysterious ways. He is far bigger and greater than we can imagine. Love is what makes us different and what God uses to draw people to himself
+* Hosanna (E)
+* Lord I Need You (A)
+
 ## 2022-05-29 (ICC - Dr. Steve)
 * Found in You (C)
 * Living Hope (C)
