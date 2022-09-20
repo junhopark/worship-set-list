@@ -3,6 +3,13 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2022-09-25 (ICC - Dr. Steve)
+* Hymn of Heaven (C)
+* This is Amazing Grace (G)
+* Sermon: Topic of inclusion—how we need to extend a hand of fellowship to those who are different than us and who normally wouldn't be in our social circles to show the way that the gospel breaks down the walls that we often erect among us. There will also be an aspect of caring for one another's needs.
+* Remembrance (D)
+* O Come to the Altar (A)
+
 ## 2022-07-31 (ICC - Pastor Peter)
 * God the Uncreated One (F -> G)
 * Go (G -> A)
