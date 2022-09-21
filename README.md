@@ -8,7 +8,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * This is Amazing Grace (G)
 * Sermon: Topic of inclusion—how we need to extend a hand of fellowship to those who are different than us and who normally wouldn't be in our social circles to show the way that the gospel breaks down the walls that we often erect among us. There will also be an aspect of caring for one another's needs.
 * Remembrance (D)
-* O Come to the Altar (A)
+* O Come to the Altar (G)
 
 ## 2022-07-31 (ICC - Pastor Peter)
 * God the Uncreated One (F -> G)
