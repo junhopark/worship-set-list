@@ -3,6 +3,18 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2022-10-02 (ICC - PL)
+* Who You Are (G)
+* Holy Spirit (D) - TL sing lead
+* Sermon: 1 Cor 13 - "Love is Everything". Will be expounding on LOVE, the love of God and the love we are to have for one another - the essence of what being a community in Christ is all about. The church cannot exist without love. 
+* How Deep the Father's Love Us (E)
+* You Are My King (D) - TL sing lead
+
+Goodness of God (A)
+Amazing Grace My Chains Are Gone (E)
+Shine (G)
+You Are My King (D)
+
 ## 2022-09-25 (ICC - Dr. Steve)
 * Hymn of Heaven (C)
 * This is Amazing Grace (G)
