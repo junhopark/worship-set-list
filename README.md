@@ -4,11 +4,11 @@ This is a list of my own worship sets that I've been keeping track of over the y
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2022-10-16 (ICC - Pastor Peter)
-*
-*
+* Jesus Messiah (G)
+* Jesus, Son of God (A)
 * Sermon: Topic of God and money and how we view and manage our money is about discipleship, faith and trusting in God as stewards of his gifts and resources to serve others and his kingdom.
-* 
-*
+* My Worth Is Not In What I Own (C)
+* Solid Rock (E)
 
 ## 2022-10-02 (ICC - PL)
 * Who You Are (G)
