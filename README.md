@@ -3,6 +3,27 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2022-10-16 (ICC - Pastor Peter)
+* Jesus Messiah (G)
+* Jesus, Son of God (A)
+* Sermon: Topic of God and money and how we view and manage our money is about discipleship, faith and trusting in God as stewards of his gifts and resources to serve others and his kingdom.
+* My Worth Is Not In What I Own (C)
+* Solid Rock (E)
+
+## 2022-10-02 (ICC - PL)
+* Who You Are (G)
+* Holy Spirit (D) - TL sing lead
+* Sermon: 1 Cor 13 - "Love is Everything". Will be expounding on LOVE, the love of God and the love we are to have for one another - the essence of what being a community in Christ is all about. The church cannot exist without love. 
+* How Deep the Father's Love Us (E)
+* You Are My King (D) - TL sing lead
+
+## 2022-09-25 (ICC - Dr. Steve)
+* Hymn of Heaven (C)
+* This is Amazing Grace (G)
+* Sermon: Topic of inclusion—how we need to extend a hand of fellowship to those who are different than us and who normally wouldn't be in our social circles to show the way that the gospel breaks down the walls that we often erect among us. There will also be an aspect of caring for one another's needs.
+* Remembrance (D)
+* O Come to the Altar (G)
+
 ## 2022-09-04 (ICC - Dr. Steve)
 * Living Hope (C)
 * Hymn of Heaven (C)
@@ -15,12 +36,6 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Sermon: Wrap up of Sermon On The Mount series, preaching on Matthew 7:24-29—building your house on the rock. The main focus will be on choosing to live intentionally as a disciple of Jesus, obeying his teaching which leads to the life that he desires for us.
 * In Christ Alone (E)
 * Christ is Enough (A)
-
-As We Seek Your Face / Jesus Draw Me Close (G) - Classical guitar?
-My Worth is Not in What I own (D) - Classical guitar?
-My Reward (A)
-Step By Step (G)
-
 
 ## 2022-07-31 (ICC - Pastor Peter)
 * God the Uncreated One (F -> G)
