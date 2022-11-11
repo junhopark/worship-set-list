@@ -3,6 +3,25 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2022-09-04 (ICC - Dr. Steve)
+* Living Hope (C)
+* Hymn of Heaven (C)
+* God You're So Good (A)
+* Goodness of God (C)
+
+## 2022-08-07 (ICC - Dr. Steve)
+* O Praise the Name (A)
+* I Lift My Hands (A)
+* Sermon: Wrap up of Sermon On The Mount series, preaching on Matthew 7:24-29—building your house on the rock. The main focus will be on choosing to live intentionally as a disciple of Jesus, obeying his teaching which leads to the life that he desires for us.
+* In Christ Alone (E)
+* Christ is Enough (A)
+
+As We Seek Your Face / Jesus Draw Me Close (G) - Classical guitar?
+My Worth is Not in What I own (D) - Classical guitar?
+My Reward (A)
+Step By Step (G)
+
+
 ## 2022-07-31 (ICC - Pastor Peter)
 * God the Uncreated One (F -> G)
 * Go (G -> A)
