@@ -3,6 +3,75 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2023-05-20 (ICC)
+* Jesus Messiah (G)
+* This Is Our God (Wickham) (A)
+* How Great Is Our God (A)
+* sermon
+* Lord I Need You (F)
+* I Stand Amazed (F)
+
+## 2023-05-14 (ICC)
+* O Praise The Name (A)
+* Great Are You Lord (G)
+* sermon
+* Power of the Cross (D)
+* Revelation Song (D)
+
+## 2023-04-30 (ICC)
+* This Is Amazing Grace (G)
+* Who You Are (G)
+* sermon
+* Psalm 23 (G)
+* Build My Life (G)
+* Amazing Grace My Chains Are Gone (E)
+
+## 2023-04-09 (ICC - Dr. Steve; Easter Sunday)
+* God The Uncreated One
+* King of Kings (D)
+* Living Hope (C)
+* Sermon
+* Jesus Paid It All (B)
+* God Be Praised (A)
+
+## 2023-02-26 (ICC - JA)
+* O Praise the Name (A)
+* Always (A)
+* Sermon: 2 Samuel 21:15-22: Facing giants in our lives. There are times when we fight alone and sometimes when we fight as a community of believers. No weapon formed against us shall prosper, so as a response the devil will try to desensitize, distract, or discourage us but know that this battle is won in Jesus Christ.
+* Let Your Glory Fall (G)
+* God Be Praised (E)
+
+## 2023-02-12 (ICC - Pastor F)
+* Read Psalm 40:1-2
+* 10,000 Reasons (E)
+* King of Kings (E)
+* Sermon: 2 Chronicles 20:1-19. Listening to God when praying. God speaks. Develop a habit of listening to God. 
+* As We Seek Your Face / Jesus Draw Me Close (G)
+* Same God (B - Tune half step lower)
+
+## 2023-01-22 (ICC - Dr. Steve)
+* Jesus (G) 
+* Who You Are (G)
+* Sermon: Topic of joy—what true Christian joy is about and how we can pursue it.
+* Made Me Glad (C)
+* How Great Is Our God (A)
+
+
+## 2023-01-08 (ICC - Dr. Steve)
+* Come Thou Fount (E)
+* Living Hope (C)
+* Sermon: An overview on the topic of Christ-likeness, exploring how we are people of desire and how our desires reveal what is truly in our hearts. Crucifying the desires of the flesh and walking in the Spirit.
+* Christ Is Enough (A)
+* Hymn of Heaven (C)
+
+
+## 2022-11-27 (ICC - Dr. Steve)
+* Same God (B) - Play in C, half step tuned lower
+* Goodness of God (B)
+* Sermon: 1 Timothy 2:8-15; 1 Cor 14:34-35; 1 Cor 11:2-16. Women in leadership. One of the focuses will be on the priority of the gospel which causes us to surrender everything else so that God may be glorified. How the gospel transforms our world (but not always as quickly or directly as we think it should).
+* Build My Life (G) 
+* Great Are You Lord (G)
+
 ## 2022-10-16 (ICC - Pastor Peter)
 * Jesus Messiah (G)
 * Jesus, Son of God (A)
@@ -1079,7 +1148,7 @@ Songs to rehearse:
 * 10,000 Reasons (E)
 * This next song is a new song that I want to share w/ all of you & it’s a song that I think does a great job of reminding us that this life is NOT about us & making a name for ourselves & trying to build our own little kingdom here on Earth but rather, it’s about giving glory to God & making Jesus shine in our lives.
 * Crown Him (B) => Pads
-* Jesus, Jesus (B) => Pads
+* Jesus, Only Jesus (B) => Pads
 * Sermon: Will be on Jonah 1 and basically look into the depths of Jonah's sinful heart and the irony of his response to God's call relative to who He understand God's to be. And how we need to look honestly inside ourselves and see the sin that resides to truly understand God's grace. Any songs that focus in on God's love and grace and/or our sinfulness would work well I think.
 * One Thing Remains (G) => Pads
 * Communion song: Nothing but the Blood (E)
