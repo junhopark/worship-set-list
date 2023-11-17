@@ -3,59 +3,6 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## 2023-11-19 (ICC - PP)
-* Creator (B)
-* Goodness of God (B)
-* Sermon: In God's grace, he calls us to serve, even from our inadequacy, all it’s required from us is simple obedience, and he does the rest. 
-* More Like Jesus (A)
-* Christ Is Enough (A)
-
-## 2023-11-12 (ICC - Dr. Steve)
-* O Praise The Name (A)
-* Creator (B)
-* Who You Are (G)
-* Sermon: 3rd cycle of conversations between Job and his friends. The focus will be on Job's deteriorating view of God—particularly with Job's claim that God is so distant and doesn't care about him. Look at how our circumstances tend to affect our view of God and how we need to see the claims that God makes about himself rather than using circumstances as our primary guide.
-* Psalm 23 (Surely Goodness, Surely Mercy) (A)
-* How Great is the Love (G)
-*  I think songs that affirm God’s nearness and goodness toward us would fit well with the message. 
-
-
-## 2023-10-08 (ICC - PF)
-* God the Uncreated One (F -> G)
-* King of Kings (D) -> TL sing lead
-* Sermon: Nehemiah 1:1-4, 11: Waiting and listening. When we wait on the LORD, He can direct us. The hardest part is the waiting.
-* Sovereign Over Us (A)
-* Lord I Need You (A)
-
-## 2023-09-17 (ICC - Dr. Steve)
-* This Is Our God (Wickham) (A)
-* Is He Worthy (C)
-* Living Hope (C)
-* Sermon: There are forces at work to undo the goodness of God's creation and our struggle to find the goodness and meaning in what God is doing. And yet we have Jesus who fights for us to overcome in this battle over goodness/evil.
-* Still (D?) (E?)
-* Goodness of God (A)
-
-## 2023-09-10 (ICC - Dr. Steve)
-* Battle Belongs (C)
-* Goodness of God (C) => Andy sing lead
-* Sermon: Job 3. Job moves from quiet acceptance to discouragement and struggle. The theme of lament—what it means for us to bring our struggles and grievances to God. 
-* It Is Well With My Soul (C)
-* I Lift My Hands (A)
-
-## 2023-08-20 (ICC)
-* Same God (B)
-* Jesus, Only Jesus (B) => Pads
-* Sermon: Luke 10:38-42. In the midst of serving Jesus and others, we can sometimes find ourselves distracted, and at times find that we are missing intimacy in our relationship with Christ. Learn to sit at Jesus’s feet, be reminded of His kindness and mercy, and rise and serve those around us filled with His love.
-* As We Seek Your Face / Jesus Draw Me Close (G) 
-* I Lift My Hands (A)
-
-## 2023-07-30 (ICC - JN)
-* How Great Is Our God (A)
-* Made Me Glad (A) => TL sing lead
-* Sermon: Spiritual practice of Lament; God wants all of us: Even and especially our pain. 
-* Come As You Are (B) => guitar start
-* O Come to the Altar (G)
-
 ## 2023-07-16 (ICC - Pastor Peter)
 * This is Our God (Wickham) (A)
 * Always (A)
@@ -1165,7 +1112,7 @@ Songs to rehearse:
 * I Lift My Hands (A)
 * Prayer song: Refiner’s Fire (D) => TL lead
 
-## 2018-04-01 (ICC - Dr. Steve)
+## 2018-04-01 (ICC - Dr. Steve
 * Start pads - G
 * Good morning! Happy Easter to all of you! Roughly 2,000 years ago, there was great power that was demonstrated by God when he raised Jesus from his death on the cross. In Ephesians 1:18 - 23 the Apostle Paul wrote the following words: "I pray that the eyes of your heart may be enlightened in order that you may know the hope to which he has called you, the riches of his glorious inheritance in his holy people, and his incomparably great power for us who believe. That power is the same as the mighty strength he exerted when he raised Christ from the dead and seated him at his right hand in the heavenly realms, 21 far above all rule and authority, power and dominion, and every name that is invoked, not only in the present age but also in the one to come. And God placed all things under his feet and appointed him to be head over everything for the church, which is his body, the fullness of him who fills everything in every way.” // We want to celebrate the awe and the wonder of Christ’s resurrection this morning so why don’t you join us as we sing this morning?
 * Jesus Messiah (G)
