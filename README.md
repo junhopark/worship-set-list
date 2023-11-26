@@ -3,6 +3,13 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2023-11-26 (ICC - Dr. Steve)
+* 10,000 Reasons (E)
+* King of Kings (E) => Andy sing lead
+* Sermon: Job 28-31. How so much of our view of life is shaped by our experiences and as a result of that we can tell a story of our lives that is very different than how God sees it. We need to see our lives through the lens of faith and to gain wisdom as we go through life. 
+* Ever Be (G)
+* Build My Life (G)
+
 ## 2023-11-19 (ICC - PP)
 * Creator (B)
 * Goodness of God (B)
@@ -17,8 +24,6 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Sermon: 3rd cycle of conversations between Job and his friends. The focus will be on Job's deteriorating view of God—particularly with Job's claim that God is so distant and doesn't care about him. Look at how our circumstances tend to affect our view of God and how we need to see the claims that God makes about himself rather than using circumstances as our primary guide.
 * Psalm 23 (Surely Goodness, Surely Mercy) (A)
 * How Great is the Love (G)
-*  I think songs that affirm God’s nearness and goodness toward us would fit well with the message. 
-
 
 ## 2023-10-08 (ICC - PF)
 * God the Uncreated One (F -> G)
@@ -32,7 +37,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Is He Worthy (C)
 * Living Hope (C)
 * Sermon: There are forces at work to undo the goodness of God's creation and our struggle to find the goodness and meaning in what God is doing. And yet we have Jesus who fights for us to overcome in this battle over goodness/evil.
-* Still (D?) (E?)
+* Still (E)
 * Goodness of God (A)
 
 ## 2023-09-10 (ICC - Dr. Steve)
