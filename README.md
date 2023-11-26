@@ -4,9 +4,10 @@ This is a list of my own worship sets that I've been keeping track of over the y
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2023-11-26 (ICC - Dr. Steve)
+* Good morning! I hope all of you enjoyed your Thanksgiving and that it was filled with great food and times spent with loved ones and that you were reminded of many reasons to give thanks to God. In Psalm 103:1-5 it says // "Praise the Lord, my soul; all my inmost being, praise his holy name. Praise the Lord, my soul, and forget not all his benefits—who forgives all your sins and heals all your diseases, who redeems your life from the pit and crowns you with love and compassion, who satisfies your desires with good things so that your youth is renewed like the eagle’s.". Let's all stand at this time and give thanks to God through singing.
 * 10,000 Reasons (E)
 * King of Kings (E) => Andy sing lead
-* Sermon: Job 28-31. How so much of our view of life is shaped by our experiences and as a result of that we can tell a story of our lives that is very different than how God sees it. We need to see our lives through the lens of faith and to gain wisdom as we go through life. 
+* Sermon: Job 28-31. How so much of our view of life is shaped by our experiences and as a result of that we can tell a story of our lives that is very different than how God sees it. We need to see our lives through the lens of faith and to gain wisdom as we go through life.
 * Ever Be (G)
 * Build My Life (G)
 
