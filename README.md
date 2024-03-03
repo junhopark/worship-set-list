@@ -3,6 +3,20 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2024-01-14 (ICC - Dr. Steve)
+* Ancient Gates (D): Tricia sing lead
+* Hymn of Heaven (C)
+* Sermon: How through prayer we learn can experience communion with God, aligning our hearts to be in alignment with his own heart. Through that transformative process of prayer, we will grow into the likeness of Jesus.
+* More Like Jesus (A)
+* Living Hope (C)
+
+## 2024-01-07 (ICC - Dr. Steve)
+* Better Is One Day (E)
+* King of Kings (E)
+* Sermon: Continuation of the prayer series with the topic: “Prayer as Asking.” It will center on God’s invitation to ask him for the things we need, believing that he is able to provide for us out of his love and goodness towards us.
+* Same God (B)
+* Battle Belongs (B)
+
 ## 2023-11-26 (ICC - Dr. Steve)
 * Good morning! I hope all of you enjoyed your Thanksgiving and that it was filled with great food and times spent with loved ones and that you were reminded of many reasons to give thanks to God. In Psalm 103:1-5 it says // "Praise the Lord, my soul; all my inmost being, praise his holy name. Praise the Lord, my soul, and forget not all his benefits—who forgives all your sins and heals all your diseases, who redeems your life from the pit and crowns you with love and compassion, who satisfies your desires with good things so that your youth is renewed like the eagle’s.". Let's all stand at this time and give thanks to God through singing.
 * 10,000 Reasons (E)
@@ -143,7 +157,6 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Sermon: An overview on the topic of Christ-likeness, exploring how we are people of desire and how our desires reveal what is truly in our hearts. Crucifying the desires of the flesh and walking in the Spirit.
 * Christ Is Enough (A)
 * Hymn of Heaven (C)
-
 
 ## 2022-11-27 (ICC - Dr. Steve)
 * Same God (B) - Play in C, half step tuned lower
