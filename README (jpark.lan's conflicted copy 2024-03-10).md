@@ -4,17 +4,17 @@ This is a list of my own worship sets that I've been keeping track of over the y
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
 ## 2024-03-17 (ICC - Dr. Steve)
-* O Praise the Name (A)
-* Abide (A)
-* Sermon: Love and mercy of God that was demonstrated on the cross.
-* Living Hope (C)
-* No Longer Slaves (F)
+* 
+* Abide?
+* Sermon
+*
+*
 
 ## 2024-03-10 (ICC - Dr. Steve)
 * Yet Not I But Through Christ In Me (D)
 * "Let's sing this next song all together that echoes Revelations 5 where it says "Then I looked and heard the voice of many angels, numbering thousands upon thousands, and 10k times 10k. They encircled the throne and the living creatures and the elders. In a loud voice they were saying: Worthy is the Lamb, who was slain, to receive power and wealth and wisdom and strength and honor and glory and praise!""
 * Holy Forever (A)
-* Sermon: Lent - on the cross of Christ
+* Sermon
 * Mighty is the Power of the Cross (E)
 * Amazing Grace - My Chains Are Gone (E)
 
