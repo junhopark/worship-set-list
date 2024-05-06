@@ -3,6 +3,14 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2024-05-01 (ICC - Dr. Steve)
+* In Psalm 95 it says "Come, let us sing for joy to the LORD; let us shout aloud to the Rock of our salvation. let us come before him with thanksgiving and extol him with music and song. For the LORD is the great God, the great King above all gods. In his hand are the depths of the earth, and the mountain peaks belong to him. The sea is his, for he made it, and his hands formed the dry land. Come, let us bow down in worship, let us kneel before the Lord our Maker; for he is our God and we are the people of his pasture, the flock under his care."
+* God the Uncreated One (F -> G)
+* Holy Forever (A)
+* Sermon: Job 38-40 - Exploring God's response to Job and his friends - on how God's ways are so vastly beyond our comprehension and how we need to trust in him even when we don't understand what's going on.
+* Sovereign Over Us (A)
+* I Lift My Hands (A)
+
 ## 2024-03-17 (ICC - Dr. Steve)
 * O Praise the Name (A)
 * Abide (A)
