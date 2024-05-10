@@ -3,7 +3,14 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
-## 2024-05-01 (ICC - Dr. Steve)
+## 2024-05-12 (ICC - PF)
+* Creator (B)
+* Who You Are (G)
+* Sermon: Mark 1:16-18. What does it mean to be a disciple of Jesus? Be with Jesus, be like Jesus, be doing what Jesus did.
+* Yet Not I But Through Christ In Me (D)
+* In Christ Alone (E)
+
+## 2024-05-05 (ICC - Dr. Steve)
 * In Psalm 95 it says "Come, let us sing for joy to the LORD; let us shout aloud to the Rock of our salvation. let us come before him with thanksgiving and extol him with music and song. For the LORD is the great God, the great King above all gods. In his hand are the depths of the earth, and the mountain peaks belong to him. The sea is his, for he made it, and his hands formed the dry land. Come, let us bow down in worship, let us kneel before the Lord our Maker; for he is our God and we are the people of his pasture, the flock under his care."
 * God the Uncreated One (F -> G)
 * Holy Forever (A)
