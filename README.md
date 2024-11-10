@@ -3,6 +3,91 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2024-11-10 (ICC - SP)
+* Ancient Gates (D)
+* Let Me See Jesus (D)
+* Draw Me Close (B)
+* Sermon: 2 Kings 4:1-7; "You already have what you need". God often works through what we already have, multiplying it and turning our scarcity into abundance when we trust in Him. 
+* Trust in God (A)
+* Solid Rock (E)
+
+## 2024-11-03 (ICC - Dr. Steve)
+* Man of Sorrows (D)
+* Praise (E)
+* Sermon: "Do not judge". Matthew 7: "Do not judge, or you too will be judged. 2 For in the same way you judge others, you will be judged, and with the measure you use, it will be measured to you. Why do you look at the speck of sawdust in your brother's eye and pay no attention to the plank in your own eye? 4 How can you say to your brother, 'Let me take the speck out of your eye,' when all the time there is a plank in your own eye? 5 You hypocrite, first take the plank out of your own eye, and then you will see clearly to remove the speck from your brother's eye." The focus will be on how we don't understand the way that this command ought to radically change the fundamental way we approach our relationships, recognizing that our role in their lives is not to make judgment on them but to love and accept them.
+* Living Hope (C)
+* What a Beautiful Name (E)
+
+## 2024-09-29 (ICC - Pastor Peter)
+* Same God (B) 
+* Battle Belongs (B)
+* Sermon: The meaning of sex within the story of the Gospel. Several texts, but will unpack how God created sex to be enjoyed within the covenant of a marriage union as a sign of: "Nakedness without Shame" in every sense of the word (true intimacy combined with true vulnerability). The wonder, glory and bliss of a physical reunion (consummation) that is to come when we see Jesus face to face. Beautiful new life that is born out of "two becoming one" (demonstrated both by spiritual renewal and the miracle of childbirth) 
+* Jesus, Son of God (A)
+* At the Cross (E)
+
+## 2024-09-22 (ICC - Pastor Peter)
+* Psalm 145:18-19: "The Lord is near to all who call on him, to all who call on him in truth. He fulfills the desires of those who fear him; he hears their cry and saves them." Let us call on our God this morning and express to him, by singing, our desire for more of God in our lives, which we know is only possible by the power of the Holy Spirit and because of the sacrifice and the blood of Jesus Christ.
+* Holy Spirit (D)
+* Let Me See Jesus (D)
+* Sermon: How mutual submission is the way of Jesus and how the marriage roles between a husband and wife are not about whether power lies with the husband or shared with the wife, but how we are all called to exercise self-giving love through mutual submission regardless of whatever traditional or cultural roles exist around us. The Main text will be Eph 5:20-32.
+* More Like Jesus (A)
+* Build My Life (G)
+
+
+## 2024-09-15 (ICC - Pastor Peter)
+* Jesus Messiah (G)
+* Let Me See Jesus (D)
+* King of Kings (D) => TL sing lead
+* Sermon: Expand on the idea of unity and oneness as pictured in the marriage union from previous week but now pivoting to the Church and how the oneness God is calling us to is also to be shared among believers. This is to be displayed in a new covenant community where self giving love and mutual submission are to be the hallmarks. The main text will be John 14-17 the upper room discourse.
+* Living Hope (C) 
+
+## 2024-09-08 (ICC - Pastor Lester)
+* God the Uncreated One (F -> G)
+* Jesus, Son of God (A) 
+* Sermon: A healthy Biblical view and practice of fun and play is essential when it comes to our relationship with God and with one another
+* Making Melodies (Lester to do motion) (?)
+* May the Peoples Praise You (C) => Tricia sing lead
+* Great Things (G)
+
+## 2024-09-01 (ICC - Pastor Peter)
+* "Good morning, everyone. I want to welcome you all to our Sunday morning service and my hope for us is that the next couple of hours would be special time that God uses to draw every single one of us closer to Himself and to one another, being reminded that each of us makes up the different parts of the body of Christ, which is the church. I want to read a few verses from Psalm 46 where it says "God is our refuge and strength, an ever-present help in trouble. Therefore we will not fear, though the earth give way and the mountains fall into the heart of the sea, though its waters roar and foam and the mountains quake with their surging." As we sing together, may we be reminded and be aware of God's presence and his protection over us"
+* This Is Our God (Wickham) (A)
+* Abide (A)
+* Sermon: Ephesians 5:21-32. "Power of Love" How we are to relate to one another in marriage as husband & wife and more broadly in the church as well. We all struggle with a love for power but the gospel shows us that the power of love, exercised via mutual submission is the only thing that can truly transform others and bring us together in perfect unity in marriage and in the church.
+* How He Loves (A)
+* You Are My King (E)
+
+## 2024-07-28 (ICC)
+* You've Already Won (G#)
+* Living Hope (C)
+* Sermon: Phil 1:27-30. Joy of unity in the midst of external challenges. How to strive together, how to stand firm together, how to not be frightened so that we can live lives worthy of the gospel. Be united in mind and spirit as we face persecution for our faith.
+* Let Your Glory Fall (G) 
+* Battle Belongs (B)
+* MultiTracks set list: https://www.multitracks.com/premium/rehearsalmix/details.aspx?setlistID=2693587
+* Spotify playlist: https://open.spotify.com/playlist/6uj4MQIZn4vXtN8y75KXWl?si=9527d6354a8e428f
+
+## 2024-07-21 (ICC)
+* O Praise the Name (A)
+* Death Was Arrested (A)
+* Sermon: Letter to Philemon. God calling us to mutual submission and self-giving love in Christ towards one another no matter what position we find ourselves in as this is the way of Jesus.
+* Amazing Grace My Chains Are Gone (E)
+* Jesus Paid It All (B)
+
+## 2024-07-14 (ICC)
+* This Is Our God (Wickham) (A)
+* How Great is Our God (A)
+* Great Are You Lord (G)
+* Sermon
+* Same God (B)
+* King of Kings (D)
+
+## 2024-07-07 (ICC)
+* 10000 Reasons (E)
+* Holy Forever (A)
+* Sermon: Your Faith Has Made You Well / Faith Over Feelings (Prov 3:5, 28:26; 2Cor 5:7; MT8:5-13)
+* Goodness of God (B)
+* I Lift My Hands (B) 
+
 ## 2024-05-12 (ICC - PF)
 * Creator (B)
 * Who You Are (G)
