@@ -8,6 +8,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Let Me See Jesus (D)
 * Draw Me Close (B)
 * Sermon: 2 Kings 4:1-7; "You already have what you need". God often works through what we already have, multiplying it and turning our scarcity into abundance when we trust in Him. 
+* In the OT book of Daniel 3, we're told about the story of Shadrach, Meshach, & Abednego who are bound & thrown into the fiery furnace by the angry Babylonian king Nebuchadnezzar after declaring to Nebuchadnezzar's face that they will not worship the Babylonian gods but rather put their hope and trust in their God--our God. And then in vv24-25, it says "Then King Nebuchadnezzar was astonished and rose up in haste. He declared to his counselors, “Did we not cast three men bound into the fire?” They answered and said to the king, “True, O king.” He answered and said, “But I see four men unbound, walking in the midst of the fire, and they are not hurt; and the appearance of the fourth is like a son of the gods.” What an incredible display of what can happen when we place our hope and trust in God over trusting in ourselves, our own abilities or wealth.
 * Trust in God (A)
 * Solid Rock (E)
 
