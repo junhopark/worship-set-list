@@ -3,6 +3,14 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2024-11-17 (ICC - Pastor Peter)
+* This I Believe (The Creed) (A)
+* Jesus, Son of God (A)
+* Sermon: Wrap up of the marriage series. Final purpose of marriage and how it points to ultimately our union with Christ after we die and heaven and earth becoming one again (Rev 21-22).
+* Yet Not I But Through Christ In Me (C)
+* Is He Worthy (C)
+* How Great is Our God - Chorus Only (C)
+
 ## 2024-11-10 (ICC - SP)
 * Ancient Gates (D)
 * Let Me See Jesus (D)
