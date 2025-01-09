@@ -3,6 +3,14 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2025-01-12 (ICC - SP)
+* Good, Good Father (G)
+* Abide (A)
+* Lord I Need You (A)
+* Sermon: "I Am - The God Who Meets Every Need"
+* Goodness of God (A)
+* Hymn of Heaven (C)
+
 ## 2025-01-05 (ICC - Dr. Steve)
 * This I Believe (The Creed) (G)
 * Great Are You Lord (G)
@@ -1063,7 +1071,7 @@ As we sing the next song, may we be moved by God's kindness & goodness in giving
 * Jesus (G)
 * Intro the chorus of next song to congregation BEFORE we start the song as a band.
 * Midnight Clear (Love Song) (G)
-* Psalm 148:1-6: Praise the Lord! Praise the Lord from the heavens; praise him in the heights! Praise him, all his angels; praise him, all his hosts! Praise him, sun and moon, praise him, all you shining stars! Praise him, you highest heavens, and you waters above the heavens! Let them praise the name of the Lord! For he commanded and they were created. And he established them forever and ever; he gave a decree, and it shall not pass away.[a]
+* Psalm 148:1-6: Praise the Lord! Praise the Lord from the heavens; praise him in the heights! Praise him, all his angels; praise him, all his hosts! Praise him, sun and moon, praise him, all you shining stars! Praise him, you highest heavens, and you waters above the heavens! Let them praise the name of the Lord! For he commanded and they were created. And he established them forever and ever; he gave a decree, and it shall not pass away.
 * Glory in the Highest (Christmas Version) (A or Bb) => JJ lead
 * Sermon: Focus on how in sending His Son to become a man, God demonstrated His love for us by identifying with us and how He expressed that love through empathy. Explore elements of his humanity and how that should be meaningful to us and hopefully also inspire us to love others in that same way -- meeting them where they are and not where we want them to be. Hebrews 4:14-16.
 * Lead closing set on electric guitar
