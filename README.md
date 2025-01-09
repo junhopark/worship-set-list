@@ -3,6 +3,20 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2025-01-05 (ICC - Dr. Steve)
+* This I Believe (The Creed) (G)
+* Great Are You Lord (G)
+* Sermon: John 2:12-25 on Jesus cleansing the temple. Focus on the theme of how Jesus expressed God's jealous heart for undivided worship from us.
+* Jesus Only Jesus (B)
+* Draw Me Close (B)
+
+## 2024-12-29 (ICC - PY)
+* How Great is Our God
+* King of Kings (D)
+* Sermon.
+* More Like Jesus (A) 
+* Trust in God (A)
+
 ## 2024-11-17 (ICC - Pastor Peter)
 * This I Believe (The Creed) (A)
 * Jesus, Son of God (A)
