@@ -3,13 +3,20 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2025-01-26 (ICC - Dr. Steve)
+* This Is Our God (Wickham) (A)
+* Amazing Grace My Chains Are Gone (E)
+* John 3 - Jesus's conversation with Nicodemus. Focus on how Jesus came to reunite heaven and earth by dying on the cross and reconciling our broken relationship with him. God's love for us demonstrated through the Father's sacrifice of his Son. How we should rethink our view of heaven—not primarily as a place where we go when we die but a realm where God dwells which now becomes accessible to us through the work of the Holy Spirit.
+* Living Hope (C)
+* King of Kings (D)
+
 ## 2025-01-12 (ICC - SP)
 * Good, Good Father (G)
 * Abide (A)
 * Lord I Need You (A)
-* Sermon: "I Am - The God Who Meets Every Need"
-* Goodness of God (A)
-* Hymn of Heaven (C)
+* Sermon: "The Command Is To Disciple" (Matthew 28:18-20)"
+* Hosanna (E)
+* We Fall Down (E)
 
 ## 2025-01-05 (ICC - Dr. Steve)
 * This I Believe (The Creed) (G)
