@@ -3,6 +3,28 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2025-05-18 (ICC - Pastor Lester)
+* The Lord's Prayers (It's Yours) (F - maybe E?)
+* No Longer Slaves (F)
+* Sermon: "The Gift of Rest" A vibrant life, centered on God, flourishes through a genuine rest that can only be found in our Heavenly Father's embrace. Matthew 11:25-30; Luke 11:38-42
+* Abide (A)
+* I Lift My Hands (A)
+
+## 2025-05-04 (ICC - Pastor Peter)
+* God the Uncreated One (F -> G)
+* Great Are You Lord (G)
+* Sermon: Ephesians 5:18-21: How we are to sing to one another, and not just to God, and that this is one fo the main ways in which we are filled by the Spirit and express love to one another. 
+* I Love You Lord (D)
+* Holy Forever (A)
+* Goodness of God (A)
+
+## 2025-03-09 (ICC - Dr. Steve)
+* Yet Not I But Through Christ In Me (C)
+* Goodness of God (A)
+* Sermon: John 4:43 - End of John 5, capturing 3 different sections (healing of an official's son, healing of a lame person by the pool, and Jesus's testimony about his authority). These signs that Jesus did all attest to the fact that Jesus has authority over all creation and that he perfectly represents the heart of God. It also speaks to his compassion as King and desire to alleviate suffering over his subjects.
+* God You're So Good (A) 
+* Who You Are (G)
+
 ## 2025-01-26 (ICC - Dr. Steve)
 * This Is Our God (Wickham) (A)
 * Amazing Grace My Chains Are Gone (E)
@@ -70,7 +92,6 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Sermon: How mutual submission is the way of Jesus and how the marriage roles between a husband and wife are not about whether power lies with the husband or shared with the wife, but how we are all called to exercise self-giving love through mutual submission regardless of whatever traditional or cultural roles exist around us. The Main text will be Eph 5:20-32.
 * More Like Jesus (A)
 * Build My Life (G)
-
 
 ## 2024-09-15 (ICC - Pastor Peter)
 * Jesus Messiah (G)
