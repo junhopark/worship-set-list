@@ -3,6 +3,41 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2025-09-07 (ICC - Dr. Steve)
+* Holy Forever (B)
+* Jesus Only Jesus (B)
+* Sermon: John 11 (raising of Lazarus). Focus on how it shows the compassion and empathy of Jesus as well as a foretaste of how he will conquer death.
+* King of Kings (D)
+* Who You Are (G)
+
+## 2025-07-20 (ICC - Dr. Steve)
+* Here For You (A)
+* This Is Our God (Wickham) (A)
+* Sermon: John 9 - the story of Jesus healing the blind man. Build on the theme of previous message of Jesus being the light of the world and how this miracle shows that Jesus came to take away our spiritual blindness.
+* Mighty to Save (A)
+* Goodness of God (A)
+
+## 2025-07-13 (ICC - Pastor Peter)
+* How Great is Our God (B)
+* Gratitude (A)
+* Sermon: How God calls us to minister to others in the midst of life's constant interruptions and examine the life and ministry of Jesus as the ultimate example of this.
+* Same God (B)
+* Battle Belongs (B)
+
+## 2025-07-06 (ICC - Dr. Steve)
+* King of Kings (D)
+* Love of God (E)
+* Sermon: John 8:31-59: Focus on Jesus coming to set people free from their sins.
+* Abide (A)
+* Amazing Grace My Chains Are Gone (E)
+
+## 2025-05-25 (ICC - JP)
+* Battle Belongs (B)
+* Jesus Only Jesus (B)
+* Sermon: "Seen and Loved: Walking in the Light of Christ"; 1 John 1; To walk in the light is to walk in Christ - not by hiding our flaws but by bringing them into His presence. 1 John 1 shows that the Christian life is not built on the illusion of perfection but on the truth of Jesus, who meets us in our brokenness. In Him, honesty is not weakness but worship. As we confess our sins and live vulnerably with one another, we become a community where grace flows, healing begins, and the light of Christ overcomes all shame.
+* Gratitude (A)
+* Sovereign Over Us (A)
+
 ## 2025-05-18 (ICC - Pastor Lester)
 * The Lord's Prayers (It's Yours) (F - maybe E?)
 * No Longer Slaves (F)
