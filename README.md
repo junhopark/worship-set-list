@@ -3,6 +3,21 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2025-09-21 (ICC - PL)
+* Read Psalm 113:1-4
+* O Praise the Name (A)
+* Trust in God (A)
+* Sermon: We are called by God to the vulnerable work of truly seeing others and being seen by them, for it is in this sacred exchange that we find the beginning of Christ's pathway to inner healing and transformation.
+* No Longer Slaves (F)
+* God Really Loves Us (A)
+
+## 2025-09-14 (ICC - Dr. Steve)
+* Creator (B)
+* Gratitude (A)
+* Sermon: Capital campaign launch. Focus on the overall mission/vision of the church and how it fits into our plans for the building. Focus on discipleship, community and outreach, and how the building can become a place for us to realize this vision.
+* Build My Life (G)
+* Trust in God (A)
+
 ## 2025-09-07 (ICC - Dr. Steve)
 * Holy Forever (B)
 * Jesus Only Jesus (B)
