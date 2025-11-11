@@ -3,6 +3,35 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2025-11-09 (ICC - Dr. Steve)
+* Man of Sorrows (D)
+* Psalm 46 (Lord of Hosts) (D)
+* Hungry (D)
+* Sermon: Mutuality in Worship and Life: We are a church where everyone is both a giver and receiver. We gather not to consume but to contribute—to build one another up in love. In worship and in service, we practice mutual edification, affirming that every member has something essential to offer, regardless of age, gender, or background. Mutual submission and shared leadership reflect our trust in the Spirit’s work through all people. The overall emphasis will be on how we are all called to give and receive as we build one another up and help one another toward discipleship. There will be an emphasis on how the Spirit empowers us for this work. 
+* Build My Life (G)
+* Great Are You Lord (G)
+
+## 2025-11-02 (ICC)
+* The Lord's Prayer (F)
+* God the Uncreated One (F -> G)
+* Sermon: "Faith that seeks love" - the main passage is the interaction between Jesus and Simon in Luke 7:40-47. 
+* Unashamed (A)
+* More Like Jesus (A)
+
+## 2025-10-19 (ICC - Dr. Steve)
+* Battle Belongs (B)
+* Goodness of God (B) 
+* Sermon: The Table and True Fellowship: We treasure the Lord's Supper as more than a ritual—it is a sacred act of communion with Christ and one another. In breaking bread, we embrace one another as real friends and family, recognizing that belonging in God's family means making space at the table for every person, especially those who may have been overlooked or excluded elsewhere.
+* Remembrance (D)
+* Jesus Messiah (G)
+
+## 2025-09-28 (ICC - Dr. Steve)
+* This I Believe (The Creed) (A)
+* Abide (A)
+* Sermon: John 12:1-11, when Mary anoints Jesus. The focus will be on costly worship because Jesus is worthy of it.
+* Is He Worthy (C)
+* Here For You (A)
+
 ## 2025-09-21 (ICC - PL)
 * Read Psalm 113:1-4
 * O Praise the Name (A)
@@ -16,7 +45,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Gratitude (A)
 * Sermon: Capital campaign launch. Focus on the overall mission/vision of the church and how it fits into our plans for the building. Focus on discipleship, community and outreach, and how the building can become a place for us to realize this vision.
 * Build My Life (G)
-* Trust in God (A)
+* Trust in God (A) => skipped due to service running long
 
 ## 2025-09-07 (ICC - Dr. Steve)
 * Holy Forever (B)
@@ -54,7 +83,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Sovereign Over Us (A)
 
 ## 2025-05-18 (ICC - Pastor Lester)
-* The Lord's Prayers (It's Yours) (F - maybe E?)
+* The Lord's Prayers (It's Yours) (F)
 * No Longer Slaves (F)
 * Sermon: "The Gift of Rest" A vibrant life, centered on God, flourishes through a genuine rest that can only be found in our Heavenly Father's embrace. Matthew 11:25-30; Luke 11:38-42
 * Abide (A)
