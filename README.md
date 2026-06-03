@@ -3,10 +3,93 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2026-05-17 (ICC - PP)
+* The Lord's Prayer (E)
+* King of Kings (D)
+* Sermon: Genesis 32 (Jacob wrestling with God). The main theme is that sometimes God meets our trouble with more trouble, not to harm us, but to redirect our hearts toward Him and deepen our dependence on Him. Since it’s Grad Sunday, I will be applying this specifically to graduates as they step into a new season. I want to remind them that while graduation feels like a new beginning, we never graduate from needing God’s grace and presence.
+* Still (C) 
+
+## 2026-05-10 (ICC - PJ)
+* This I Believe (G)
+* Jesus Messiah (G)
+* Sermon
+* How Great is the Love (G)
+* Build My Life (G)
+
+## 2026-05-03 (ICC - Dr. Steve)
+* First Hymn (G)
+* Great Are You Lord (G)
+* Sermon: 1 Peter 5:1-5. Peter's charge to the elders of the early church. A picture of what godly shepherding looks like.
+* Goodness of God (A) 
+* Mighty to Save (A)
+
+## 2026-03-22 (ICC - Pastor Peter)
+* Man of Sorrows (D)
+* King of Kings (D)
+* Sermon: John 18:1-27 - Theme will be on how Peter’s denial and flaws expose the same in all of us -- that human weakness is real, but Jesus' restorative grace and unconditional love are greater than our failure.
+* Unashamed (A)
+
+## 2026-03-15 (ICC - Dr. Steve)
+* The First Hymn (G)
+* Is He Worthy (C)
+* Sermon: Focus on making a home for our members and how we can grow as a community in Christ
+* Sons and Daughters (F)
+
+## 2026-03-08 (ICC - Dr. Steve)
+* This is Amazing Grace (G)
+* The First Hymn (G)
+* Sermon: John 17 on Jesus's prayer for his disciples.
+* Love of God (E)
+
+## 2026-03-01 (ICC - Dr. Steve)
+* This I Believe (The Creed) (A)
+* Gratitude (A)
+* Sermon: John 16:12-33. The first section talks about how Jesus will reveal new things through the Spirit and then the second section will be on the comfort and joy that the Spirit will provide in the midst of troubling times. Focus on John 16:33, “I have told you these things, so that in me you may have peace. In this world you will have trouble. But take heart! I have overcome the world.”
+* Sovereign Over Us (A) 
+
+## 2026-01-25 (ICC - Dr. Steve)
+* Come Thou Fount (E)
+* No Longer Slaves (E)
+* Sermon: John 13:18-38 with a focus on Judas and the journey from choosing to follow Jesus to becoming the one who would ultimately betray him and hand him over to the authorities. In addition to looking at how this can happen in a person’s life, look at the grace Jesus showed to Judas until the very end (to the uttermost)
+* Goodness of God (A)
+
+## 2026-01-11 (ICC - Dr. Steve)
+* 10000 Reasons (E)
+* Love of God (E)
+* Sermon: John 12:12-50. Jesus's triumphal entry where Jesus enters Jerusalem and then predicts his death as well as the unbelieving response of the Jews. 
+* In Christ Alone (E)
+
+## 2026-01-04 (ICC - Dr. Steve)
+* Yet Not I But Through Christ in Me (C)
+* Living Hope (C)
+* Sermon: Cast vision for serving in 2026. Challenge people to explore ways that they might serve again especially as we move into the new building and its potential impacts.
+* I Will Offer Up My Life (E)
+
+## 2025-11-30 (ICC - Pastor Praise)
+* O Praise the Name (A)
+* Goodness of God (A)
+* Note: Special praise
+* Sermon: "Immanuel: God who enters our mess"; Focus on the idea of inaugurated eschatology - specifically, that Jesus is Immanuel and is with us now, even as we navigate the tension between the "already" and the "not yet." Because His victory is guaranteed, we have access to Him now in the midst of our current struggles. Advent reminds us that Christ entered into this reality of darkness and is fully present in our mess.
+* Glory in the Highest (Christmas version) (A)
+* Holy Forever (A)
+
+## 2025-11-23 (ICC - Pastor Peter)
+* King of Kings (D)
+* Living Hope (C)
+* Sermon: Unity in Diversity: We are committed to the hard work of maintaining the unity that Jesus secured through the cross. Across generations, backgrounds, and experiences, we come together as one body, celebrating our differences while pursuing deep connection. We believe God’s kingdom is beautifully diverse, and we are called to reflect that diversity in a spirit of love, humility, and reconciliation
+* Sons and Daughters (F)
+
+## 2025-11-16 (ICC - Dr. Steve)
+* How Great Thou Art (A)
+* Sons and Daughters (F)
+* Sermon: A Life Poured Out: As followers of Jesus, we are called not only to grow in faith but also to be poured out in self-giving love for the world. We live this out through acts of service and compassion—bearing witness to the good news of God's kingdom in both word and deed. Our discipleship calls us beyond comfort, joining with Jesus in the work of redemption, reconciliation, and renewal in our neighborhoods, our nation, and to the ends of the earth.
+* Hosanna (E)
+* Here For You (A)
+
 ## 2025-11-09 (ICC - Dr. Steve)
 * Man of Sorrows (D)
 * Psalm 46 (Lord of Hosts) (D)
-* Hungry (D)
+* Hungry (C)
 * Sermon: Mutuality in Worship and Life: We are a church where everyone is both a giver and receiver. We gather not to consume but to contribute—to build one another up in love. In worship and in service, we practice mutual edification, affirming that every member has something essential to offer, regardless of age, gender, or background. Mutual submission and shared leadership reflect our trust in the Spirit’s work through all people. The overall emphasis will be on how we are all called to give and receive as we build one another up and help one another toward discipleship. There will be an emphasis on how the Spirit empowers us for this work. 
 * Build My Life (G)
 * Great Are You Lord (G)
@@ -127,7 +210,7 @@ I hope this will serve as a helpful resource for folks looking for ideas around 
 * Draw Me Close (B)
 
 ## 2024-12-29 (ICC - PY)
-* How Great is Our God
+* How Great is Our God (A)
 * King of Kings (D)
 * Sermon.
 * More Like Jesus (A) 
@@ -859,7 +942,7 @@ We’ve sung this song a few times here at ICC and I would like to try to sing t
 * Sermon: 2 Samuel 18-19 about the death of Absalom and David mourning him. Explore the tension between the need for justice (Absalom needed to be stopped) and love/mercy. Ultimately, the cross is the greatest answer to this tension. Therefore, any songs that focus on how justice and mercy were met on the cross will fit well with the message.
 * Notes: Change to standard tuning on acoustic guitar
 * Living Hope (C): Joseph sing lead
-* Communion + Communion song: Nothin But the Blood (hymn) (E)
+* Communion + Communion song: Nothing But the Blood (hymn) (E)
 * Build My Life (G): Start on acoustic guitar
 * Prayer song: Enough (G): Joseph sing lead; No bass; no drums; Acoustic guitar fingerpicking driven
 * [Spotify Playlist](https://open.spotify.com/playlist/2HV44zG5egrE794rkoLNbB?si=wUfvSv3YTO6Ws9x09nM8GQ)
