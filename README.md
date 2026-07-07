@@ -3,6 +3,21 @@ This is a list of my own worship sets that I've been keeping track of over the y
 
 I hope this will serve as a helpful resource for folks looking for ideas around building worship sets. Please feel free to get in touch with me if you'd like to chat about what you see here!
 
+## 2026-07-05 (ICC - PC)
+* O Praise the Name (A)
+* Love of God (E)
+* Sermon: Embracing Our Dependence - What our God desires from His children is to depend on and trust Him fully, especially during the moments of our "dislocation" and "weakness". 
+* Abide (A)
+* Battle Belongs (A)
+
+## 2026-06-07 (ICC - Dr. Steve)
+* How Great is Our God (A)
+* Battle Belongs (A)
+* (NU special praise)
+* Sermon: Second command to make no images of God. The theme will be how we are always tempted to try to image God in ways that we can understand (and all too often meets our expectations of what God should be), but all such attempts reduce him. 
+* The First Hymn (G)
+* Who You Are (G)
+
 ## 2026-05-17 (ICC - PP)
 * The Lord's Prayer (E)
 * King of Kings (D)
